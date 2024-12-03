@@ -16,7 +16,8 @@ Bucket list:
 - Learn roller skating (will do when my twisted neck gets better...)
 - Participate in River Cleanup at [Sai gon xanh](https://sgxgroup.vn/)
 - Interview businessmen (cafe owner for example)
-- 
+- Learn martial arts (học võ)
+- Be a guitarist
 
 TLDR:
 ChatGPT recommendation (dont care about most of it :)) 
