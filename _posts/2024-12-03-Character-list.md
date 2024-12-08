@@ -10,14 +10,16 @@ Reference: [Get out of the character You created for your self](https://mphuongl
 2. Founder of educational website on Facebook: [Học gói học mở](https://www.facebook.com/hocgoihocmo)
 3. Try new fashion style: I tried street hiphop girl style with [pink parachute](https://www.uniqlo.com/vn/vi/products/E464888-000?colorCode=COL10&sizeCode=SMA003) with [pink polo](https://www.uniqlo.com/vn/vi/products/E465601-000?colorCode=COL10&sizeCode=SMA003) in Uniqlo. Omg it looks very nice on meeeee.
 4. Go to Can Gio beach w/ Tan (very far and late)
-
+5.
 
 Bucket list:
+- Start a 1-week business selling Aloe Vera (right before Tet holiday)
 - Learn roller skating (will do when my twisted neck gets better...)
 - Participate in River Cleanup at [Sai gon xanh](https://sgxgroup.vn/)
 - Interview businessmen (cafe owner for example)
 - Learn martial arts (học võ)
 - Be a guitarist
+-  
 
 TLDR:
 ChatGPT recommendation (dont care about most of it :)) 
