@@ -1,6 +1,6 @@
 ---
 title: "My Broken English"
-date: 2025-02-01
+date: 2025-01-02
 ---
 
 Today I, along with Hoang and Mr. Le Khanh Duy, have a meeting with Prof. Sheng to invite him to join our thesis project. Before the meeting, I was so nervous but I didnt know what will be discussed in the meeting to prepare. 
