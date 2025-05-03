@@ -3,7 +3,7 @@ title: "Đời là một chuyến du lịch dài"
 date: 2025-05-03
 ---
 
-Tiếp tục câu chuyện của thầy Phước. 
+Tiếp tục câu chuyện của thầy Phước.
 
 Thầy có kể về cuộc đời thầy. Là một người nghiên cứu, người ta sẽ kể về chặng đường học vấn của mình (có lẽ mình cũng sẽ vậy? ồ chợt mình nghĩ ra, có thể kể về dưới góc nhìn khác nhau: học tập, bạn bè, tình yêu, những con người đã xuất hiện trong đời)
 
