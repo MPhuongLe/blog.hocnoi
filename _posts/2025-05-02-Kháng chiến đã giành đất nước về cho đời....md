@@ -14,9 +14,9 @@ Hôm đó mình đi trên đỉnh núi Đá về. Thấy mình hỏi nhiều, TN
 - Trong bối cảnh diễn ra lễ kỉ niệm 50 năm ngày _Giải phóng miền Nam, thống nhất đất nước_, thầy - một người đã trải qua sự kiện đó - nghĩ gì?
 - ? (Forgotten)
 
-Vừa về đến _Nhà chung_ đã thấy thầy ngồi ở đó. ~Hữu duyên~ Tình cờ nhỉ! Mình bắt đầu vào việc luôn.
+Vừa về đến _Nhà chung_ đã thấy thầy ngồi ở đó. ~~Hữu duyên~~ Tình cờ nhỉ! Mình bắt đầu vào việc luôn.
 
-Thầy là một người ~khá~ cởi mở. Thầy __rất__ cởi mở. Không cần những câu hỏi làm quen, dò hỏi đối phương. 
+Thầy là một người ~~khá~~ cởi mở. Thầy __rất__ cởi mở. Không cần những câu hỏi làm quen, dò hỏi đối phương. 
 
 Mình không nhớ trọn vẹn thầy nói gì, vì đã nhiều ngày trôi qua kể từ hôm đầu tiên mình đến farm (và cũng là hôm duy nhất mình gặp thầy). Nhưng mình sẽ list ra những điều mình ấn tượng:
 
