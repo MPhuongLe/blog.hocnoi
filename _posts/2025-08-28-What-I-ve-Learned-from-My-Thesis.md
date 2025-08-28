@@ -8,11 +8,11 @@ It was early morning when I woke up to my dad's alarm. Instead of going back to 
 ## 1. Don't stick to the failed solutions
 At first, I have a good impression of my supervisor - he seemed interesting and open-minded. But during meetings, his cold and distant attitude scared me. I couldn't ask questions. I was afraid of being jugded as stupid or inappropriate.
 
-One day, over coffee, I shared this painful situation with Tú Nhi. She encouraged me to communicate directlt with him: "There's only one way to find out - just try". I agreed, but thesis assigments swept mee away, and by the time I though of speaking up, the feelings had already faded.
+One day, over coffee, I shared this painful situation with Tú Nhi. She encouraged me to communicate directly with him: "There's only one way to find out - just try". I agreed. However, thesis assigments swept me away, and by the time I thought of speaking up, the feelings had already faded.
 
 Spending more time at SELab, I observed how he interacted with others. Slowly, I realized: it's not me - it's him. And it's much easier to accept people as they are, than to accept yourself as defined by how others treat (or abandon) you.
 
-From there, my self-doubt shifted into curiostiy about him. What is the real him — the delightful, explorative, and reflective young I saw in his old Facebook posts, or the cold, rude, straightforward, and irritable supervisor I worked with now? What had changed in him? What was he building in his life?
+From there, my self-doubt shifted into curiostiy about him. What is the real him — the delightful, explorative, and reflective young I saw in his old Facebook posts, or the cold, rude, straightforward, and irritable supervisor I worked with now? Were they the same person in different situations, or had he changed? What is he building in his life?
 
 After the defense, I texted him to ask. 
 
@@ -21,14 +21,14 @@ The lesson? There are many ways to find out - just not the same failed way over 
 ## 2. You are brave
 On another defense, I once heard a supervisor harshly criticize one of my classmate for not working hard. It shocked me - and made me wonder what my own feedback would be.
 
-On August 17th, 2025, I found out. To my surprise, my supervisor's comments were warm, encouraging and full of pride. He even called us brave for pursuing on a non-mainstream topic in Vietnam, and praised our initiative and our perfectionism, even when it sometimes went beyond what he required.
+On August 17th, 2025, I found out. To my surprise, my supervisor's comments were warm, encouraging and full of pride. He even called us brave for pursuing on a non-mainstream topic in Vietnam, and praised our initiative and perfectionism, even when it sometimes went beyond what he required.
 
-I hadn't expected that. I thought I knew my supervisor as cold and distant - though also honest and thoughtful. I also knew I had made mistakes, miscommunicated, and let fear hold me back. Yet, Dr. Duy chose to see our effort and commitment. For that, I'm deeply grateful. To me, you are not perfect - but you are great. It wasn't your HCI expertise that taught me the most, but your personality — and that changed something inside me. And with your encouragement now, you've taught me one more thing: faith in people.
+I hadn’t expected that. I thought I knew my supervisor as cold and distant — but I had forgotten that he was also honest and thoughtful. I thought I knew myself as someone who made mistakes, miscommunicated, and fearful — but I had forgotten that I also tried.
+
+Dr. Duy chose to see our effort and commitment. That reminded me that, even though you are not perfect in my eyes, you are still great. What taught me the most wasn't your HCI expertise, but your personality — and that changed something inside me. With your encouragement, you've given me one more lesson: faith in people.
 
 ## 3. Improve English
-English was my weakness. I failed to communicate with my team, which limited my contributions and hurt our working atmosphere. Week after week, I dreaded meetings, hoping they would pass quickly. 
-
-For the first time, I felt the full weight of being uncommunicatable. It was painful. But also a wake-up call: it's time to face it.
+English was my weakness. I failed to communicate with my team, which limited my contributions and hurt our working atmosphere. Week after week, I dreaded meetings, hoping they would pass quickly. For the first time, I felt the full weight of being uncommunicatable. It was painful. But also a wake-up call: it's time to face it.
 
 ## 4. Shen and Tang
 Shen is a careful, deep HCI researcher (the kind I might become). Tang is cheerful and explorative (the kind I want to become). 
@@ -37,7 +37,7 @@ Working with Shen wasn't always happy, mostly because of miscommunication. Later
 
 He gave me a sense of light on my research path. I want to try it out.
 
-## 5. You have good friends
+## 5. I have good friends
 I was surprised by how ready and willing my friends were to help me, especially during the poorly prepared user study. My thesis couldn't have been completed without them: Tú Nhi, sister Nhi, Tân, Hải, Thúy, Huỳnh Cao Khôi, and Ly.
 
 ## 7. Feedback is what really mattered
@@ -51,15 +51,17 @@ Here's what I took away about making a good presentation:
 
 ## 6. Injustice, in life or academia
 I also witnessed some painful stories from friends:
-- Tân'supervisor spoke badly about his teammate (a future Master's student) to the admissions staff, but never said it directly to him. Later, he removed their names from a dataset challenge - even though they had made the main contributions - and replaced them with names of SELab members (some with little contribution, some with none at all). Finally, because he was the one who submitted the paper, he also removed Tân's equal-contribution marker from the publication, without any agreement or notification.
+- Tân's supervisor spoke badly about his teammate (a future Master's student) to the admissions staff, but never said it directly to him. Later, he removed their names from a dataset challenge - even though they had made the main contributions - and replaced them with names of SELab members (some with little contribution, some with none at all). Finally, because he was the one who submitted the paper, he also removed Tân's equal-contribution marker from the publication, without any agreement or notification.
 - Minh Thu's supervisor (FTU2) also acted unfairly: she put her own name before Minh Thu's on a paper, even though Minh Thu was the one who had done the real work. The supervisor neither contributed nor supervised anything, except the final review. When Minh Thu texted her to ask about the authorship order, she was ghosted.
 
-## 8. Prof. Triết
-After the thesis, I finally understood something Minh Thu once said: "There's no good or bad person". There's just people you like, people you don't - depending on the time and situation. It’s true. "Good" and "bad" are labels we attach, not absolutes.
+## 8. It's just what you like or dislike. Ego.
+After the thesis, I finally understood something Minh Thu once said: "There's no good or bad person." At first, I dismissed it as abstract philosophy, but the thesis process forced me to see it in practice. Working with different people — Dr. Duy, Prof. Triết, even myself — I noticed how quickly my judgments shifted. Someone who felt "difficult" one day could seem "kind" the next, depending on our own mood, our stress, or the context we were in.
+
+That's when I realize: there aren't truly "good" or "bad" people. There are only people I happen to like or dislike in a given moment, shaped by circumstances and by my own state of mind. "Good" and "bad" are not absolutes, maybe not even real at all. They're labels I project, reflections of my own ego.
+
+In a way, the thesis stripped away the illusion. 
 
 ## Closing
-This thesis journey was full of mistakes, miscommunication, and fear. But it was also full of kindness, lessons, and growth.
-
-And maybe that's the real achievement: not just finishing a thesis, but coming to myself better.
+This thesis journey was full of mistakes, miscommunication, and fear. But it was also full of kindness, lessons, and growth. And maybe that's the real achievement: not just finishing a thesis, but coming to myself better.
 
 
