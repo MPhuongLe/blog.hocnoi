@@ -6,14 +6,22 @@ date: 2025-09-08
 From today, I will start writing a diary. I plan to write every day. This post will be updated weekly.
 
 ## September
+
 ### 2025-09-08
-When I visit home, I feel uncomfortable because:
+It is lonely, but really nice to be back to my own house!
 
-1. I cannot make decisions about my own life. Mom often doesn't listen to me and rejects many of my suggestions — for example, when I should go to the dentist or whether I can remove the lid of the trash can.
+### 2025-09-07
+I stayed up late listening to the Have a Sip podcast with guest Phương Mỹ Chi. She's the same age as me, and she is really cool. I think her life as a singer - with her vision and ability to grow while staying true to herself - has given her wonderful experiences and maturity.
 
-2. There are too many things to take care of: others' belongings, household chores, relatives — all while my own work remains unfinished, my personal explorations set aside, and the things I want to do for Hến Hến left undone.
+Some takeaways that touched me:
+- When asked about her "destination" in the arts, she unreluctantly replied that she doesn't have one and doesn't want one. For her, art is a journey, and she hopes it can always stay the way it is now.
 
-I also realize that I'm a logical person, and I find it hard to tolerate unreasonable behavior.
+- She is cheerful and positive, but she also takes time to reflect deeply on what happens in her life. From Brother Huỳnh Lập, she realized — through his example rather than direct teaching — the importance of working professionally while keeping a warm and pleasant working environment. She also learned from him the value of giving freely, since we already receive so much from others.
+
+### 2025-09-02
+Today is Hến Hến's 10th birthday. We prepared so much: sầu riêng chiên that looked like chips but tasted like cheese; gà chiên mắm and gà chiên xù (the kids loved the gà chiên xù more); bánh tráng trộn with quail eggs and sausage; and trà tắc made by mom. We also had handheld fireworks.
+
+The birthday cake was left untouched because the kids were already full and excited from all the food! I was exhausted but happy. There wasn't even time to take any photographs.
 
 ### 2025-09-01
 Main ideas from the coffee talk with thầy Kiên and Tú Nhi:
@@ -43,3 +51,22 @@ Main ideas from the coffee talk with thầy Kiên and Tú Nhi:
 - Late notes (Bún đậu mắm tôm thoughts with Tú Nhi): She feels uncomfortable talking with thầy Kiên and thinks they are not a good match. But we concluded that the real issue is she doesn’t feel listened to.
   
 - Extra notes (TN – HCK – T.Kiên café): Gap year is okay, but take care of your finances.
+
+## August
+
+### 2025-08-30
+Since returning home on August 24th, I've felt uncomfortable because:
+
+1. I cannot make decisions about my own life. Mom often doesn't listen to me and rejects many of my suggestions — for example, when I should go to the dentist or whether I can remove the lid of the trash can.
+
+2. There are too many things to take care of: others' belongings, household chores, relatives — all while my own work remains unfinished, my personal explorations set aside, and the things I want to do for Hến Hến left undone.
+
+I also realize that I'm a logical person, and I find it hard to tolerate unreasonable behavior.
+
+### 2025-08-20
+Today Tú Nhi and I moved to our new house. The Ahamove van service was really bad — they didn't help us load our stuff into the van and insisted on charging extra for every additional service (carrying items onto the truck, allowing one person to ride along, passing through toll stations).
+
+On the way, we talked and realized something interesting. Tú Nhi admires me for making decisions so quickly when packing and moving, something she feels she cannot do. She thinks I'm a naturally fast decision-maker — but that's not true. In parallel, I see that it takes her no time to decide what to draw, something I cannot do. That's when I realized: **Fast decision-making is not an inherent trait, but the result of experience and practice. It is fluency.**
+
+
+
