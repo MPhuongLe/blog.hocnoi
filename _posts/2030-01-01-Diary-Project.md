@@ -1,6 +1,6 @@
 ---
 title: "Diary Project"
-date: 2030-01-01
+date: 2025-09-08
 ---
 
 From today, I will start writing a diary. I plan to write every day. This post will be updated weekly.
