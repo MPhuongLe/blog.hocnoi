@@ -41,4 +41,5 @@ Main ideas from the coffee talk with thầy Kiên and Tú Nhi:
     - For Buôn Ma Thuột: He likes Jun’s Home the most, but I found the drinks overly sweet (= tasted bad).
       
 - Late notes (Bún đậu mắm tôm thoughts with Tú Nhi): She feels uncomfortable talking with thầy Kiên and thinks they are not a good match. But we concluded that the real issue is she doesn’t feel listened to.
+  
 - Extra notes (TN – HCK – T.Kiên café): Gap year is okay, but take care of your finances.
