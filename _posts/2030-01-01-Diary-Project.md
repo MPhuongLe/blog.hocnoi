@@ -55,14 +55,11 @@ Learned from [PhD. Bui Tran Phuong](https://www.youtube.com/watch?v=GlHUiU187DQ)
 
 Praise is one of the most effective tools for shaping a child’s behavior. But not all praise is the same.
 
-**Two Types of Praise:**
+Two Types of Praise:
 
-1. Routine/Everyday Praise: "Good job!" "Well done!".
+1. Routine/Everyday Praise: "Good job!" "Well done!". Children love praise. Regular, simple praise strengthens your relationship with them, so keep doing it often.
 
-Children love praise. Regular, simple praise strengthens your relationship with them, so keep doing it often.
-
-2. Behavior-Change Praise
-This type of praise is used specifically to encourage new or better behaviors. It has three key features:
+2. **Behavior-Change Praise**. This type of praise is used specifically to encourage new or better behaviors. It has three key features:
 
 - **Enthusiasm**: Deliver praise with energy — big smiles, expressive tone, maybe even gestures. For example: "That's great!"
 
@@ -78,13 +75,13 @@ Notes:
 
 **Praises to Avoid:**
 
-- Praising the person, not the action: Don't say, "You're a good boy because you did this." Praise the behavior, not the child’s identity.
+- Praising the person, not the action: Don't say, "_You're a good boy because you did this_ ❌". Praise the behavior, not the child’s identity.
 
-- Linking praise to love: Don't say, "We love you when you do X." Children should know your love is unconditional.
+- Linking praise to love: Don't say, "_We love you when you do X_ ❌". Children should know your love is unconditional.
 
-- Making it about yourself: Avoid, "You make Mommy happy when you do this." Your happiness should not feel dependent on the child's actions.
+- Making it about yourself: Avoid, "_You make Mommy happy when you do this_ ❌". Your happiness should not feel dependent on the child's actions.
 
-- Adding a "caboose": Don't ruin good praise with criticism. Example: "Great job picking up your toys!... Why can't you always do that?" The add-on cancels out the praise.
+- Adding a "caboose": Don't ruin good praise with criticism. Example: "Great job picking up your toys!... Why can't you always do that? ❌". The add-on cancels out the praise.
 
 Conclusion: The key to the entire approach of all that we're talking about is having the child practice the behaviors you want. We are building habits. We need the repetition of the behavior. And what praise does, it fits into that by **increasing the likelihood that the child will do the behavior again**, we have more practice.
 
