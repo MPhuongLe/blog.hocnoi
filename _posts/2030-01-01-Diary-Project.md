@@ -7,6 +7,22 @@ From today, I will start writing a diary. I plan to write every day. This post w
 
 ## September
 
+### 2025-09-11
+Học cách chịu được sự chán
+
+### 2025-09-11
+Continue note of Bui Tran Phuong's podcast:
+
+What is good from Confucianism (should learn):
+- "Phú quý bất năng dâm, bần tiện bất năng di, uy vũ bất năng khuất," (Giàu sang không làm tôi thèm khát, nghèo hèn không làm thay đổi ý chí của tôi, bạo lực cường quyền không khuất phục được tôi).
+- Chính tâm (giữ lòng mình cho ngay thẳng = thành thật với bản thân mình), tu thân (tự sửa bản thân mình). Bắt đầu từ mình. Lắng lòng để tự biết xem: Mình là ai? Cái gì đối với mình là giá trị, là quan trọng? 
+
+What is not good from Confucianism (shouldn't learn):
+- Nệ cổ: trăm sự học hỏi thánh hiền, không học đời nay, đời xưa.
+- Tư tưởng của nho giáo rằng Xã hội ổn định phải có trật tự là hay. Nhưng trật tự ấy không nên là tôn ti (trên là cao quý, dưới là thấp hèn), mà là mọi người bình đẳng trước pháp luật và được pháp luật bảo vệ. Nó dẫn đến những điều dở: Trọng nam khinh nữ; Người nhỏ phải nghe lời người lớn, "Con cãi cha mẹ trăm đường con hư".
+
+Khi người học trò sẵn sàng thì người thầy sẽ xuất hiện.
+
 ### 2025-09-10
 _Học là để làm người. Nhưng làm người là làm gì?_
 
@@ -25,6 +41,46 @@ But if we are already born human, why must we learn to be human? And what does "
 In Confucianism, the root of human education lies in the character Nhân (仁). It is formed from Nhân (人, person) and Nhị (二, two), meaning "two people." To be/become human, therefore, is to know how to live with others.
 
 Learned from [PhD. Bui Tran Phuong](https://www.youtube.com/watch?v=GlHUiU187DQ)
+
+### 2025-09-08
+[Everyday Parenting](https://www.coursera.org/learn/everyday-parenting/lecture/GzLlg/praise), day 1.
+
+**Using Praise to Change a Child's Behavior**
+
+Praise is one of the most effective tools for shaping a child’s behavior. But not all praise is the same.
+
+**Two Types of Praise:**
+
+1. Routine/Everyday Praise: "Good job!" "Well done!".
+
+Children love praise. Regular, simple praise strengthens your relationship with them, so keep doing it often.
+
+2. Behavior-Change Praise
+This type of praise is used specifically to encourage new or better behaviors. It has three key features:
+
+- **Enthusiasm**: Deliver praise with energy — big smiles, expressive tone, maybe even gestures. For example: "That's great!"
+
+- **Specificity**: Point out exactly what you are praising. For example: "Great! You picked up the toys just like I asked."
+
+- **Nonverbal Reinforcement**: Add a physical touch. It could be a touch on the shoulder, high fives, rubbing the child's hair, a hug, kiss, whatever you do that's comfortable.
+
+Notes:
+
+- Praise must happen **immediately after the behavior**. Delayed praise (like mentioning it hours later at dinner) loses its power.
+  
+- This program is **short-term**. Use it to build habits — once the behavior becomes consistent, the special praise is no longer needed.
+
+**Praises to Avoid:**
+
+- Praising the person, not the action: Don't say, "You're a good boy because you did this." Praise the behavior, not the child’s identity.
+
+- Linking praise to love: Don't say, "We love you when you do X." Children should know your love is unconditional.
+
+- Making it about yourself: Avoid, "You make Mommy happy when you do this." Your happiness should not feel dependent on the child's actions.
+
+- Adding a "caboose": Don't ruin good praise with criticism. Example: "Great job picking up your toys!... Why can't you always do that?" The add-on cancels out the praise.
+
+Conclusion: The key to the entire approach of all that we're talking about is having the child practice the behaviors you want. We are building habits. We need the repetition of the behavior. And what praise does, it fits into that by **increasing the likelihood that the child will do the behavior again**, we have more practice.
 
 ### 2025-09-08
 It is lonely, but really nice to be back to my own house!
