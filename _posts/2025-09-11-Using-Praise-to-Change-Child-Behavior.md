@@ -4,9 +4,9 @@ date: 2025-09-11
 ---
 
 A few days ago, thầy Kiên introduced me to a really great course on parenting from Yale University (I'll leave the link at the end of this post). I've only gone through a small part of it so far, but I already find it very helpful, so I want to share it with everyone.
-
+.
 ------------------------------------------
-
+.    
 On the parenting journey, every parent hopes their child will **develop positive habits and behaviors**: doing homework, cleaning up their toys on their own, enjoying reading, or learning to listen to others.
 
 One of the simplest yet most effective ways to help children maintain and strengthen good behaviors is praise. However, not all praise leads to positive change. In fact, if done the wrong way, praise can reduce motivation or even send the wrong message to the child.
