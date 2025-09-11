@@ -11,17 +11,23 @@ From today, I will start writing a diary. I plan to write every day. This post w
 Học cách chịu được sự chán
 
 ### 2025-09-11
-Continue note of Bui Tran Phuong's podcast:
+Notes from Bùi Trân Phượng’s podcast
 
-What is good from Confucianism (should learn):
-- "Phú quý bất năng dâm, bần tiện bất năng di, uy vũ bất năng khuất," (Giàu sang không làm tôi thèm khát, nghèo hèn không làm thay đổi ý chí của tôi, bạo lực cường quyền không khuất phục được tôi).
-- Chính tâm (giữ lòng mình cho ngay thẳng = thành thật với bản thân mình), tu thân (tự sửa bản thân mình). Bắt đầu từ mình. Lắng lòng để tự biết xem: Mình là ai? Cái gì đối với mình là giá trị, là quan trọng? 
+1. What is valuable in Confucianism (worth learning):
 
-What is not good from Confucianism (shouldn't learn):
-- Nệ cổ: trăm sự học hỏi thánh hiền, không học đời nay, đời xưa.
-- Tư tưởng của nho giáo rằng Xã hội ổn định phải có trật tự là hay. Nhưng trật tự ấy không nên là tôn ti (trên là cao quý, dưới là thấp hèn), mà là mọi người bình đẳng trước pháp luật và được pháp luật bảo vệ. Nó dẫn đến những điều dở: Trọng nam khinh nữ; Người nhỏ phải nghe lời người lớn, "Con cãi cha mẹ trăm đường con hư".
+- "Phú quý bất năng dâm, bần tiện bất năng di, uy vũ bất năng khuất"
+    - Vietnamese: Giàu sang không làm tôi thèm khát, nghèo hèn không làm thay đổi ý chí của tôi, bạo lực cường quyền không khuất phục được tôi.
+    - English: Wealth cannot tempt me, poverty cannot sway me, and power cannot subdue me.
 
-Khi người học trò sẵn sàng thì người thầy sẽ xuất hiện.
+- Chính tâm (keeping your heart upright = being honest with oneself) and Tu thân (self-cultivation = working on oneself = tự sửa bản thân mình). Everything begins with the self. Spend time to reflect: Who am I? What values truly matter to me?
+
+2. What is problematic in Confucianism (best left behind):
+
+- Nệ cổ: Over-reverence for the past — studying only the ancients while ignoring the present.
+
+- The Confucian belief that social order is necessary is not inherently wrong. The problem lies in how order is defined. It should not mean hierarchy/ tôn-ti (where those above are noble and those below are inferior) but equality before the law, with equal protection for all. Otherwise, it leads to harmful legacies:
+  - Gender inequality (trọng nam khinh nữ).
+  - Blind obedience to authority ("Con cãi cha mẹ trăm đường con hư" — a child who disobeys parents is doomed to fail).
 
 ### 2025-09-10
 _Học là để làm người. Nhưng làm người là làm gì?_
