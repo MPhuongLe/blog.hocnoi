@@ -5,7 +5,7 @@ date: 2025-09-11
 
 A few days ago, thầy Kiên introduced me to a really great course on parenting from Yale University (I'll leave the link at the end of this post). I've only gone through a small part of it so far, but I already find it very helpful, so I want to share it with everyone.
 
-# Using Praise to Build Good Habits / Change a Child's Behavior
+------------------------------------------
 
 On the parenting journey, every parent hopes their child will **develop positive habits and behaviors**: doing homework, cleaning up their toys on their own, enjoying reading, or learning to listen to others.
 
@@ -27,11 +27,9 @@ _Everyday Parenting, day 1. Using Praise to Change a Child's Behavior_
 
 - **Nonverbal Reinforcement**: Add a physical touch. It could be a touch on the shoulder, high fives, rubbing the child's hair, a hug, kiss, whatever you do that's comfortable.
 
-> Notes:
->
-> - Praise must happen **right after** the behavior. Delayed praise (like mentioning it hours later at dinner) loses its power.
->   
-> - This program is **short-term**. Use it to build habits — once the behavior becomes consistent, the special praise is no longer needed.
+### Notes:
+- Praise must happen **right after** the behavior. Delayed praise (like mentioning it hours later at dinner) loses its power.
+- This program is **short-term**. Use it to build habits — once the behavior becomes consistent, the special praise is no longer needed.
 
 ### Praises to Avoid:
 
