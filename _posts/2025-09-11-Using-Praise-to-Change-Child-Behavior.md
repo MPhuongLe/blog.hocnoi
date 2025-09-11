@@ -13,8 +13,6 @@ One of the simplest yet most effective ways to help children maintain and streng
 
 This post will share how to use praise **effectively** to change a child's behavior — simple techniques that can be applied right away in daily life.
 
-_Everyday Parenting, day 1. Using Praise to Change a Child's Behavior_
-
 ### Two Types of Praise
 
 1. Routine/Everyday Praise: "Good job!" "Well done!". Children love praise. Regular, simple praise strengthens your relationship with them, so keep doing it.
