@@ -33,7 +33,7 @@ This post will share how to use praise **effectively** to change a child's behav
 
 ### Praises to Avoid:
 
-| ❌ Ineffective Praise | Why to Avoid |
+| ❌ Praise | Why to Avoid |
 |-----------------------|--------------|
 | “You are such a good kid because you cleaned up your toys.” | Don’t attach fixed labels to children (good, bad, smart, diligent…). This makes them believe their self-worth depends on the label and creates fear of losing it if their behavior changes. |
 | “We love you because you cleaned up your toys.” | Parental love is unconditional. Linking love to behavior may make the child think they are loved only when they act “right.” |
