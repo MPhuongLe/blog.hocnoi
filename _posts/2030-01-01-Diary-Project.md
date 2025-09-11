@@ -22,6 +22,7 @@ _That's when we start to present different possibilities_
 - _"Could she need an arm extension?"_
 - _"Can there be a pair of height increase shoes?"_
 - _"Can someone help her get the book above?"_
+  
 _My teacher smiles "You guys see it, verbs open possibilities"._
 
 Wow! Such an interesting insight! It shifts the focus from being solution-based to being problem-based.
