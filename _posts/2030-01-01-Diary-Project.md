@@ -20,6 +20,8 @@ _The professor said, "That’s a solution. But what if I reframe it as: She need
 
 Wow! Such an interesting insight! It shifts the focus from being solution-based to being problem-based.
 
+> Let's learn Design Thinking.
+
 ### 2025-09-11
 Học cách chịu được sự chán
 
