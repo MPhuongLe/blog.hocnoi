@@ -35,10 +35,10 @@ This post will share how to use praise **effectively** to change a child's behav
 
 | ❌ Praise | Why to Avoid |
 |-----------------------|--------------|
-| “You are such a good kid because you cleaned up your toys.” | Don’t attach fixed labels to children (good, bad, smart, diligent…). This makes them believe their self-worth depends on the label and creates fear of losing it if their behavior changes. |
-| “We love you because you cleaned up your toys.” | Parental love is unconditional. Linking love to behavior may make the child think they are loved only when they act “right.” |
-| “Mom and Dad are so happy because you did that.” | This puts the responsibility on the child to bring happiness to parents, instead of helping them feel proud of their own positive behavior. |
-| “If only you could always do this, wouldn’t that be great?” | This turns praise into criticism, reducing motivation. Praise should be complete and focused—without comparisons or judgments. |
+| _“You are such a good kid because you pciked up your toys.”_ | Don’t attach fixed labels to children (good, bad, smart, diligent…). This makes them believe their self-worth depends on the label and creates fear of losing it if their behavior changes. |
+| _“We love you because you picked up your toys.”_ | Parental love is unconditional. Linking love to behavior may make the child think they are loved only when they act “right.” |
+| _“Mom and Dad are so happy because you picked up your toys.”_ | This puts the responsibility on the child to bring happiness to parents, instead of helping them feel proud of their own positive behavior. |
+| _Great job! You picked up your toys!… Why can’t you always do that?”_ | This turns praise into criticism, reducing motivation. Praise should be complete and focused—without comparisons or judgments. |
 
 
 Conclusion: The key to the entire approach of all that we're talking about is having the child practice the behaviors you want. We are building habits. We need the repetition of the behavior. And what praise does, it fits into that by **increasing the likelihood** that the child will do the behavior again, we have more practice.
