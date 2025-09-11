@@ -18,6 +18,12 @@ _My professor gave an example with an image of a child stretching to grab a book
 
 _The professor said, "That’s a solution. But what if I reframe it as: She needs TO REACH?"_
 
+_That's when we start to present different possibilities_
+- _"Could she need an arm extension?"_
+- _"Can there be a pair of height increase shoes?"_
+- _"Can someone help her get the book above?"_
+_My teacher smiles "You guys see it, verbs open possibilities"._
+
 Wow! Such an interesting insight! It shifts the focus from being solution-based to being problem-based.
 
 > Let's learn Design Thinking.
