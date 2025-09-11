@@ -10,7 +10,7 @@ From today, I will start writing a diary. I plan to write every day. This post w
 ### 2025-09-10
 _Học là để làm người. Nhưng làm người là làm gì?_
 
-Ta sinh ra là con người – là Nhân (人). Chữ Nhân gợi hình ảnh một dáng đứng giữa trời và đất. Con người là điểm giao hòa của trời và đất, mang trong mình phẩm giá riêng, không phải món đồ chơi trong tay thần linh. Khổng Tử từng nói: "Chuyện quỷ thần ta không bàn tới", bởi điều cốt yếu là trông cậy vào chính con người, vào sự giáo dục và rèn luyện của con người.
+Ta sinh ra là con người – là Nhân (人). Chữ Nhân gợi hình ảnh một dáng đứng giữa trời và đất. Con người không phải món đồ chơi trong tay thần linh. Khổng Tử từng nói: "Chuyện quỷ thần ta không bàn tới", bởi điều cốt yếu là trông cậy vào chính con người, vào sự giáo dục và rèn luyện của con người.
 
 Nhưng nếu đã sinh ra đã là con người, vậy sao ta phải học làm người, và "làm người" là làm gì?
 
@@ -18,7 +18,7 @@ Trong Nho giáo, gốc rễ của việc giáo dục con người nằm ở ch�
 
 _Learning is to become human. But what does it mean to be human?_
 
-We are born as human beings – as Nhân (人). The character Nhân evokes the image of one standing upright between Heaven and Earth. A human is the meeting point of Heaven and Earth, carrying inherent dignity, not a mere plaything in the hands of the gods. Confucius once said: "As for spirits and deities, we do not discuss them." What truly matters is to rely on humanity itself, on education and self-cultivation.
+We are born as human beings – as Nhân (人). The character Nhân evokes the image of one standing upright between Heaven and Earth. A human is not a mere plaything in the hands of the gods. Confucius once said: "As for spirits and deities, we do not discuss them." What truly matters is to rely on humanity itself, on education and self-cultivation.
 
 But if we are already born human, why must we learn to be human? And what does "be/become human" mean?
 
