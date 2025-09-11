@@ -18,7 +18,7 @@ _My professor gave an example with an image of a child stretching to grab a book
 
 _The professor said, "That’s a solution. But what if I reframe it as: She needs TO REACH?"_
 
-_That's when we start to present different possibilities_
+_That's when we start to present different possibilities:_
 - _"Could she need an arm extension?"_
 - _"Can there be a pair of height increase shoes?"_
 - _"Can someone help her get the book above?"_
