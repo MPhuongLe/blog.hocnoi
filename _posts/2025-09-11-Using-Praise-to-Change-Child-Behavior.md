@@ -1,6 +1,6 @@
 ---
 title: "Using Praise to Change Child Behavior"
-date: 2025-09-08
+date: 2025-09-11
 ---
 
 A few days ago, thầy Kiên introduced me to a really great course on parenting from Yale University (I'll leave the link at the end of this post). I've only gone through a small part of it so far, but I already find it very helpful, so I want to share it with everyone.
