@@ -4,7 +4,7 @@ date: 2025-09-11
 ---
 
 A few days ago, thầy Kiên introduced me to a really great course on parenting from Yale University (I'll leave the link at the end of this post). I've only gone through a small part of it so far, but I already find it very helpful, so I want to share it with everyone.
-.
+
 ------------------------------------------
 .    
 On the parenting journey, every parent hopes their child will **develop positive habits and behaviors**: doing homework, cleaning up their toys on their own, enjoying reading, or learning to listen to others.
