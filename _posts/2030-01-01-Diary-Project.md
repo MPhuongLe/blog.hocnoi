@@ -83,7 +83,7 @@ Two Types of Praise:
 
 2. **Behavior-Change Praise**. This type of praise is used specifically to encourage new or better behaviors. It has three key features:
 
-- **Enthusiasm**: Deliver praise with energy — big smiles, expressive tone, maybe even gestures. For example: "That's great!"
+- **Effusion**: Deliver praise with energy and enthusiasm — big smiles, expressive tone, maybe even gestures. For example: "That's great!"
 
 - **Specificity**: Point out exactly what you are praising. For example: "Great! You picked up the toys just like I asked."
 
