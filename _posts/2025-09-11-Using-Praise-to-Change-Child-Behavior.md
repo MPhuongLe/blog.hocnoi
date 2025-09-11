@@ -25,7 +25,7 @@ This post will share how to use praise **effectively** to change a child's behav
 
 - **Nonverbal Reinforcement**: Add a physical touch. It could be a touch on the shoulder, high fives, rubbing the child's hair, a hug, kiss, whatever you do that's comfortable.
 
-![4 Key Ingredients of a Behavior](https://d3c33hcgiwev3.cloudfront.net/imageAssetProxy.v1/2wQugHBtEeeX6BK-efaO0A_531e81ca6cd048b14cb143fe7437dd27_Screen-Shot-2017-07-24-at-8.41.34-AM.png?expiry=1757721600000&hmac=yPksxUdH7ToeL96RSSnWBfZHQg16z9hH8Ze5f4dy0xs =250x100)
+<img src="https://d3c33hcgiwev3.cloudfront.net/imageAssetProxy.v1/2wQugHBtEeeX6BK-efaO0A_531e81ca6cd048b14cb143fe7437dd27_Screen-Shot-2017-07-24-at-8.41.34-AM.png" alt="4 Key Ingredients of a Praise" width="250" height="100">
 
 ### Notes:
 - Praise must happen **right after** the behavior. Delayed praise (like mentioning it hours later at dinner) loses its power.
