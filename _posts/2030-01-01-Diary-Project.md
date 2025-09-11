@@ -8,6 +8,19 @@ From today, I will start writing a diary. I plan to write every day. This post w
 ## September
 
 ### 2025-09-11
+An interesting post on Design Thinking: Describe the problem by VERB
+
+Translation (from the [original post](https://www.threads.com/@thewandress1512/post/C9bVPpMMFl1?xmt=AQF00lt2cHwkxbVM3vdAiEsXCNzavUfJA8xKzlyx2CS6dA&fbclid=IwY2xjawMvYkNleHRuA2FlbQIxMABicmlkETFEYVhsbnBnMXVpemdBVEJBAR7JgaEbURsNuezXUfAEnGmPYLYe3aQR_gmmLqVKNeqThn4kKTXYP2jMLB8wRA_aem_aMAvrib5l_s7dgBVc9HFXQ)):
+
+_One of the best pieces of advice I ever learned in my Design Thinking class at Columbia was: "To find creative solutions, describe the problem using a VERB."_
+
+_My professor gave an example with an image of a child stretching to grab a book on a shelf and asked: "What does this child need?" At first, when we looked at it, we quickly answered: "She needs a ladder."_
+
+_The professor said, "That’s a solution. But what if I reframe it as: She needs TO REACH?"_
+
+Wow! Such an interesting insight! It shifts the focus from being solution-based to being problem-based.
+
+### 2025-09-11
 Học cách chịu được sự chán
 
 ### 2025-09-11
