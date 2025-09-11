@@ -33,12 +33,13 @@ This post will share how to use praise **effectively** to change a child's behav
 
 ### Praises to Avoid:
 
-| ❌ Don't                                                                 | ✅ Do                                                                 |
-|--------------------------------------------------------------------------|----------------------------------------------------------------------|
-| Praising the person, labeling child's identity: *"You're a good boy because you did this."* | Praise the behavior.                                                 |
-| Linking praise to love: *"We love you when you do X."*                   | Make sure children know your love is unconditional.                   |
-| Making it about yourself: *"You make Mommy happy when you do this."*     | Avoid tying your happiness to the child's actions.                    |
-| Adding a "caboose": *"Great job picking up your toys!… Why can't you always do that?"* | Keep praise whole and focused. Stick to effective praising techniques. |
+| ❌ Ineffective Praise | Why to Avoid |
+|-----------------------|--------------|
+| “You are such a good kid because you cleaned up your toys.” | Don’t attach fixed labels to children (good, bad, smart, diligent…). This makes them believe their self-worth depends on the label and creates fear of losing it if their behavior changes. |
+| “We love you because you cleaned up your toys.” | Parental love is unconditional. Linking love to behavior may make the child think they are loved only when they act “right.” |
+| “Mom and Dad are so happy because you did that.” | This puts the responsibility on the child to bring happiness to parents, instead of helping them feel proud of their own positive behavior. |
+| “If only you could always do this, wouldn’t that be great?” | This turns praise into criticism, reducing motivation. Praise should be complete and focused—without comparisons or judgments. |
+
 
 Conclusion: The key to the entire approach of all that we're talking about is having the child practice the behaviors you want. We are building habits. We need the repetition of the behavior. And what praise does, it fits into that by **increasing the likelihood** that the child will do the behavior again, we have more practice.
 
