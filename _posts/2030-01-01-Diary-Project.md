@@ -19,7 +19,7 @@ Tân didn't want to visit when I asked/begged because it was late, Tân hadn't e
 
 Last night's thoughts, and my talk with Nhi, stopped me from blaming him. Instead, I saw clearly: we were truly incompatible. Tân could never understand my madness. Tân never needed my presence to feel loved the way I did. To him, not talking much, not meeting often, not listening deeply — was all normal. Our love languages, our needs, were simply too different.
 
-Tân always told me these differences were trivial and unavoidable, that we could handle them. But this time, I knew it was bigger than Tân believed. I decided to end this relationship. I felt that this was the calmest moment of all moments I decided to break up with him. And I was sure. This time, I chose to follow my intuition instead of his persuasion.
+Tân always told me these differences were trivial and unavoidable, that we could handle them. But this time, I knew it was bigger than Tân believed. I decided to end this relationship. I felt that this was the calmest moment of all moments I decided to break up with him. And I was sure. This time, I chose to follow my inner voice instead of his.
 
 _Today_, I had a trip to Thủy Châu Ecotourism with Hoàng and Tân. It was a long trip, from 8AM to 3PM. I had to go home to lend Nhi my motorbike, so Tân said, "Maybe we cannot talk" (even though yesterday Tân said that we would talk tomorrow after the trip). So, I reluctantly but calmly said OK. To be honest, I was disappointed. We ended up with no arrangement to solve the problem.
 
