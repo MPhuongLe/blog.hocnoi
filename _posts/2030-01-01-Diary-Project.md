@@ -13,7 +13,7 @@ From today, I will start writing a diary. I plan to write every day. This post w
 
 Yesterday, I was mad at Tân because he disappeared while texting with me. When he texted me, I didn't reply or see the message immediately, but only 1 minute later. Then he disappeared and went to cook, clean his room, and do research. An hour later, he came back and apologized with reasons like "I forgot", "because you replied late" or "because I was tired".
 
-This wasn't the first time it happened. After a long, tiring day at the office, he spends the evening doing his own things — sleeping, cooking, or cleaning — while barely sending me more than a few messages, avoiding texting until he finishes everything. I understand his situation and exhaustion, but I couldn't bear it anymore and left it unresolved. I couldn't keep forcing myself to sympathize when it only met my frustration. In the end, I just let my soul break, forgetting how to reason or even feel.
+This wasn't the first time it happened. After a long, tiring day at the office, he spends the evening doing his own things - sleeping, cooking, cleaning or studying - while barely sending me more than a few messages, avoiding texting until he finishes everything. I understand his situation and exhaustion, but I couldn't bear it anymore and left it unresolved. I couldn't keep forcing myself to sympathize when it only met my frustration. In the end, I just let my soul break, forgetting how to reason or even feel.
 
 Last night's thoughts and discussion with Nhi made me realised deeply that he and I were truly incompatible - in love language and love needs. This was the calmest moment when I decided to break up with him, and I was really sure.
 
