@@ -11,13 +11,17 @@ From today, I will start writing a diary. I plan to write every day. This post w
 
 **It ended.**
 
-Yesterday, I was mad at Tân because he disappeared while texting with me. When he texted me, I didn't reply or see the message immediately, but only 1 minute later. Then he disappeared and went to cook, clean his room, and do research. An hour later, he came back and apologized with reasons like "I forgot", "because you replied late" or "because I was tired".
+_Yesterday_, I was mad at Tân because he disappeared while texting with me. When he texted me, I didn't reply or see the message immediately, but only 1 minute later. Then he disappeared and went to cook, clean his room, and do research. An hour later, he came back and apologized with reasons like "I forgot", "because you replied late" or "because I was tired".
 
 This wasn't the first time it happened. After a long, tiring day at the office, he spends the evening doing his own things - sleeping, cooking, cleaning or studying - while barely sending me more than a few messages, avoiding texting until he finishes everything. I understand his situation and exhaustion, but I couldn't bear it anymore and left it unresolved. I couldn't keep forcing myself to sympathize when it only met my frustration. In the end, I just let my soul break, forgetting how to reason or even feel.
 
-Last night's thoughts and discussion with Nhi made me realised deeply that he and I were truly incompatible - in love language and love needs. This was the calmest moment when I decided to break up with him, and I was really sure.
+He didn't want to visit when I asked/begged because it was late, he hadn't eaten, and he planned to study. The next day, when we were together, he promised he'd come over "every other day" until Tú Nhi came back. But yesterday he admitted he'd made that promise just to stop me from being sad. He said he shouldn't have committed: "There might come a day I don't want to do that". I was surprised and hurt to hear that. Should I have become a burden that way? Why please me, why can't you prioritize me? Why ask for me if you won't prioritize me? If his future and health mattered more than us, then why keep me enduring?
 
-Today, I had a trip to Thủy Châu Ecotourism with Hoàng and Tân. It was a long trip, from 8AM to 3PM. I had to go home to lend Nhi my motorbike, so Tân said, "Maybe we cannot talk" (even though yesterday he said that we would talk tomorrow after the trip). So, I reluctantly but calmly said OK. To be honest, I was disappointed. We ended up with no arrangement to solve the problem.
+Last night's thoughts, and my talk with Nhi, stopped me from blaming him. Instead, I saw clearly: we were truly incompatible. He could never understand my madness. He never needed my presence to feel loved the way I did. To him, not talking much, not meeting often, not listening deeply — was all normal. Our love languages, our needs, were simply too different.
+
+He always told me these differences were trivial and unavoidable, that we could handle them. But this time, I knew it was bigger than he believed. This was the calmest moment of all — the moment I decided to break up with him. And I was sure. This time, I chose to trust my intuition instead of his persuasion.
+
+_Today_, I had a trip to Thủy Châu Ecotourism with Hoàng and Tân. It was a long trip, from 8AM to 3PM. I had to go home to lend Nhi my motorbike, so Tân said, "Maybe we cannot talk" (even though yesterday he said that we would talk tomorrow after the trip). So, I reluctantly but calmly said OK. To be honest, I was disappointed. We ended up with no arrangement to solve the problem.
 
 I came home exhausted, so I went to sleep. About 1 hour later, I woke up. I thought: When would we talk? Tomorrow I had a study café with Nhi, so it would be hard to meet him. Would it drag to next week? And how long could I wait with his tiring office days? I made up my mind that I would not wait for him to solve it anymore. I should not rely on him, wait for him, or put the responsibility on him.
 
