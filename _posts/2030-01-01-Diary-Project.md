@@ -7,6 +7,38 @@ From today, I will start writing a diary. I plan to write every day. This post w
 
 ## September
 
+### 2025-09-13
+
+Yesterday, I was mad at Tân because he disappeared when texting with me. When he texted me, I didn't "reply/see" the messsage immediately but 1 minute later. Then he disappeared and go to cook, clean up his room and do research. One hour later, he came back and said sorry but "because I replied late, because he was tired, etc.".
+
+Last night's thoughts and discussion with Nhi draw me to the really idea that he and I was really incompatible. In love language and love need. This is most calm moment when I decide to break up with him and I was really sure.
+
+Today, I have a trip to Thủy Châu ecotourism  with Hoàng and Tân. It was a long trip, starting from 8AM to 3PM. I have to go home to lend Nhi my motorbike, so Tân said "Maybe we cannot talk" (even when yesterday he said that we will talk tomorrow after the trip). So, I reluctantly but calmfully said OK. So we ended up with no arrangement to solve the problem.
+
+I came home, exhausted, so I went to sleep. About 1 hour later, I woke up. I thought, when would we talk? Tomorrow I would have a study cafe with Nhi, so I would be hard to meet. Would it drag to the next week? And how long I can wait with his tiring office days? I made up my mind that I would not wait him to solve it anymore. I should not rely on him, wait for him, put the charge on him. 
+
+I booked Be service, texted him that I was coming. Just by the time, he texted me to talk to solve the problem. It was 6:25PM. But I was coming tho. I took Metro, and he went to pick me up without extra helmet. So we faked it with the rain coat to Thảo Điền area to find an affordable cafe. 
+
+We finally stopped at Cộng cafe. A "Cà phê cốt dừa" 69k and a "bánh giò 5 trứng" 40k. We talked and cried all the tissue of the shop!
+
+Some main points:
+
+- I wanted to break up because our incompatibility in love need was serious and unsolveable. 
+- He asked about the reasons.
+- After I expressed, I gave the turn to him. It was also when I started to not avoid looking at him. Because I knew I would have been uncalm if I saw him.
+- After a long talk, he agreed with me. Not wholefully because my reasons, but also my want to break up.
+- He asked how I were feeling, whether I felt relieved? I said no, I was not feeling that but I have a belief that this was a right decision and things would be better than now.
+- He asked whether his mother scaring me a reason. I said no. Indeed, I was not scared by his mother, but I disliked her.
+- For the second session, he was the one who talked and I was the listener. Sometimes he cried, but he also got much calmer.
+- I kept staring at him and he felt uncomfortable and curious as well. I wondered he wanted to hear something warm and love. But I could not say that. I avoided to say anything to give him hope, because I really meant to end this relationship. This might be the last time I could do this, the right of being his partner, his love. 
+- He asked what would I do after breaking up? I said it would keep like now, and I was not breaking up with him to do something else. And I would have time to take care of my self. My life would change its orbit to what it should care about, what needed its care. It was a long time I took my care from what needed it and gave it to where it is not needed. It kinda stupid. It was such a pity to hear it that I cried.
+- I also confessed to him that I realised I had started to be overcontrolling in this relationship. It exhausted both of us, and I also hated it. I felt that he was comforted by it then, because he started to ask me about it in a calmer manner.
+- And I told him that I wanted him to know that I did not blame him. It's just incompatibility.
+- He asked whether we meet after breaking up. I said I had no problem with that, but I thought he need time to accept that this relationship has ended.
+- He asked whether we got back together. I said yes but no. I would think of him as a classmate, like Hoàng, Khang or Quân. We can normally started another romantic relationship like any classmates. We would not get back together, because this relationship had ended.
+
+I asked him if he wanted to stay here at the cafe. He said yes, and I sat there by him. When I started not staring at him anymore, he got normal again, distracted by the surroundings. I suggested to go home. We left the cafe. He rode me to the Metro station, and we said goodbye. It was 10:15PM, and Metro worked until 11PM on Weekends. 
+
 ### 2025-09-11
 An interesting post on Design Thinking: Describe the problem by VERB
 
