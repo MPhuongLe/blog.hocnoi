@@ -33,7 +33,7 @@ Some main points:
 
 - I said I wanted to break up because our incompatibility in love needs was serious and unsolvable. I expressed myself, avoiding looking at him.
 
-- After that, I gave him the turn. That was also when I stopped avoiding his eyes, because I knew I wouldn't have stayed calm if I had done so earlier.
+- After that, I gave him the turn. That was also when I stopped avoiding his eyes, because I was afraid that I wouldn't have stayed calm if I had done so earlier.
 
 - After a long talk, Tân agreed with me that we would break up. Not entirely because of my reasons, but also because of my wish to do so. I asked him whether Tân thought we should break up. Tân said Tân didn't want to break up with me. I asked again, "But do you think we should break up?". Tân pondered for a while, then replied that maybe we should.
 
