@@ -9,6 +9,8 @@ From today, I will start writing a diary. I plan to write every day. This post w
 
 ### 2025-09-13
 
+Breaking up
+
 Yesterday, I was mad at Tân because he disappeared when texting with me. When he texted me, I didn't "reply/see" the messsage immediately but 1 minute later. Then he disappeared and go to cook, clean up his room and do research. One hour later, he came back and said sorry but "because I replied late, because he was tired, etc.".
 
 Last night's thoughts and discussion with Nhi draw me to the really idea that he and I was really incompatible. In love language and love need. This is most calm moment when I decide to break up with him and I was really sure.
