@@ -15,15 +15,15 @@ _Yesterday_, I was mad at Tân because Tân disappeared while texting with me. W
 
 This wasn't the first time it happened. After a long, tiring day at the office, Tân spent the evening doing his own things - sleeping, cooking, cleaning or studying - while barely sending me more than a few messages. Tân avoided texting until finishing everything, with the stress of things undone and the wish to have a better life. I understand his situation and exhaustion, but I couldn't bear it anymore. I couldn't leave it unresolved and keep bearing. I couldn't keep forcing myself to sympathize when he asked me to do so out of my frustration. Till the end, I let my soul break, forgetting how to reason or even feel.
 
-Tân didn't want to visit when I asked/begged because it was late, Tân hadn't eaten, and Tân had planned to study. The next day, when we were together, Tân promised he'd come over "every other day" until Tú Nhi came back. But yesterday Tân admitted he'd made that promise just to stop me from being sad. Tân said Tân shouldn't have committed: "There might come a day I don't want to do that". I was surprised and hurt to hear that. Should I have become a burden that way? Why please me, why can't you prioritize me? Why ask for me if you won't prioritize me? If his future and health mattered more than us, then why keep me enduring?
+Tân didn't want to visit when I asked/begged because it was late, he hadn't eaten, and he had planned to study. The next day, when we were together, Tân promised he'd come over "every other day" until Tú Nhi came back. But yesterday Tân admitted he'd made that promise just to stop me from being sad. Tân said he shouldn't have committed: "There might come a day I don't want to do that". I was surprised and hurt to hear that. Should I have become a burden that way? Why please me, why can't you prioritize me? Why ask for me if you won't prioritize me? If his future and health mattered more than us, then why keep me enduring?
 
-Last night's thoughts, and my talk with Nhi, stopped me from blaming Tân. Instead, I saw clearly: we were truly incompatible. Tân could never understand my madness. Tân never needed my presence to feel loved the way I did. To Tân, not talking much, not meeting often, not listening deeply — was all normal. Our love languages, our needs, were simply too different.
+Last night's thoughts, and my talk with Nhi, stopped me from blaming Tân. Instead, I saw clearly: we were truly incompatible. Tân could never understand my madness. Tân never needed my presence to feel loved the way I did. To him, not talking much, not meeting often, not listening deeply — was all normal. Our love languages, our needs, were simply too different.
 
-Tân always told me these differences were trivial and unavoidable, that we could handle them. But this time, I knew it was bigger than Tân believed. I decided to end this relationship. I felt that this was the calmest moment of all moments I decided to break up with Tân. And I was sure. This time, I chose to follow my inner voice instead of his.
+Tân always told me these differences were trivial and unavoidable, that we could handle them. But this time, I knew it was bigger than he believed. I decided to end this relationship. I felt that this was the calmest moment of all moments I decided to break up with Tân. And I was sure. This time, I chose to follow my inner voice instead of his.
 
 _Today_, I had a trip to Thủy Châu Ecotourism with Hoàng and Tân. It was a long trip, from 8AM to 3PM. I had to go home to lend Nhi my motorbike, so Tân said, "Maybe we cannot talk because of that" (even though yesterday Tân said that we would talk tomorrow after the trip). So, I reluctantly but calmly said OK. To be honest, I was disappointed. We ended up with no arrangement to solve the problem.
 
-I came home exhausted, so I went to sleep. About 1 hour later, I woke up. I thought: When would we talk? Tomorrow I had a study café with Nhi, so it would be hard to meet Tân. Would it drag to next week? And how long could I wait with his tiring office days? I made up my mind that I would not wait for Tân to solve it anymore. I should not rely on Tân, wait for Tân, or put the responsibility on Tân.
+I came home exhausted, so I went to sleep. About 1 hour later, I woke up. I thought: When would we talk? Tomorrow I had a study café with Nhi, so it would be hard to meet Tân. Would it drag to next week? And how long could I wait with his tiring office days? I made up my mind that I would not wait for Tân to solve it anymore. I should not rely on him, wait for him, or put the responsibility on him.
 
 I booked BeBike and intended to text Tân that I was coming. Just then, Tân texted me to talk and solve the problem. It was 6:25PM. But I was already on my way. I took the Metro, and Tân came to pick me up without an extra helmet. So we faked it with the raincoat and went to Thảo Điền to find an affordable café.
 
@@ -33,29 +33,29 @@ Some main points:
 
 - I said I wanted to break up because our incompatibility in love needs was serious and unsolvable. I expressed myself, avoiding looking at Tân, afraid that I wouldn't stay calm if I did so.
 
-- After that, I gave Tân the turn. That was also when I stopped avoiding his eyes.
+- After that, I gave Tân his turn. That was also when I stopped avoiding his eyes.
 
-- After a long talk, Tân agreed with me that we would break up. Not entirely because of my reasons, but also because of my wish to do so. I asked Tân whether Tân thought we should break up. Tân said Tân didn't want to break up with me. I asked again, "But do you think we should break up?". Tân pondered for a while, then replied that maybe we should.
+- After a long talk, Tân agreed with me that we would break up. Not entirely because of my reasons, but also because of my wish to do so. I asked Tân whether he thought we should break up. Tân said he didn't want to break up with me. I asked again, "But do you think we should break up?". Tân pondered for a while, then replied that maybe we should.
 
-- In the second part, Tân was the one talking and I was the listener. Sometimes Tân cried, but Tân also became much calmer.
+- In the second part, Tân was the one talking and I was the listener. Sometimes Tân cried, but he also became much calmer.
 
 - Tân asked what I would do after breaking up. I said it would be the same as now, and I wasn't breaking up with Tân to do something else. And I would have time to take care of myself. My life would return to the things that really needed my care. For a long time, I had taken my care away from what needed it and given it to where it wasn't needed. It was kind of stupid. It was such a pity to realize this that I cried.
 
-- I also confessed that I had started to become over-controlling in this relationship. It exhausted both of us, and I hated it. I felt that Tân was comforted by this confession, because Tân then asked me about it in a calmer way. Maybe Tân finally felt some relief from the guilt that I had always seemed to put on Tân.
+- I also confessed that I had started to become over-controlling in this relationship. It exhausted both of us, and I hated it. I felt that Tân was comforted by this confession, because he then asked me about it in a calmer way. Maybe Tân finally felt some relief from the guilt that I had always seemed to put on him.
 
-- I told Tân that I wanted Tân to know I did not blame Tân. It was just incompatibility.
+- I told Tân that I wanted Tân to know I did not blame him. It was just incompatibility.
 
 - Tân asked whether we would meet after breaking up. I said I had no problem with that - we could still have the English meetings with Hoàng like before - but I thought Tân needed time to accept that this relationship had ended.
 
-- Tân asked whether we could get back together. I said yes and no. I would think of Tân as a classmate, like Hoàng, Khang, or Quân. We could, in theory, start another romantic relationship the way any normal love begins. But we would not "get back together", because this relationship had already ended.
+- Tân asked whether we could get back together. I said yes and no. I would think of him as a classmate, like Hoàng, Khang, or Quân. We could, in theory, start another romantic relationship the way any normal love begins. But we would not "get back together", because this relationship had already ended.
 
 - Tân asked how I was feeling after breaking up, whether I felt relieved. I said no, I didn't feel that, but I believed this was the right decision and that things would be better once we stopped.
 
 - Tân asked whether his mother scaring me was a reason. I said no. In fact, I finally realized that I wasn't scared of his mother, but I disliked her. But it was still not a reason.
 
-- I kept staring at Tân, and Tân felt uncomfortable and curious. Tân kept asking me why. I wondered if Tân wanted to hear something warm and loving. But I couldn't say that. I avoided giving Tân hope, because I really meant to end this relationship. Maybe the reason is, this might be the last time I could do this: looking at Tân without embarassment - the right of being his partner, his love.
+- I kept staring at Tân, and he felt uncomfortable and curious. He kept asking me why. I wondered if Tân wanted to hear something warm and loving. But I couldn't say that. I avoided giving Tân hope, because I really meant to end this relationship. Maybe the reason is, this might be the last time I could do this: looking at Tân without embarassment - the right of being his partner, his love.
 
-I asked Tân if Tân wanted to stay longer at the café. Tân said yes, so I sat there by Tân. When I stopped staring at Tân, Tân became normal again, distracted by the surroundings. I suggested we go home. We left the café. Tân rode me to the Metro station, and we said goodbye. I walked ahead without looking back. It was 10:15PM, and the Metro ran until 11PM on weekends.
+I asked Tân if he wanted to stay longer at the café. Tân said yes, so I sat there by him. When I stopped staring at him, he became normal again, distracted by the surroundings. I suggested we go home. We left the café. He rode me to the Metro station, and we said goodbye. I walked ahead without looking back. It was 10:15PM, and the Metro ran until 11PM on weekends.
 
 ### 2025-09-11
 An interesting post on Design Thinking: Describe the problem by VERB
