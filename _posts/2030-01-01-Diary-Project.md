@@ -21,7 +21,7 @@ Last night's thoughts, and my talk with Nhi, stopped me from blaming him. Instea
 
 Tân always told me these differences were trivial and unavoidable, that we could handle them. But this time, I knew it was bigger than Tân believed. I decided to end this relationship. I felt that this was the calmest moment of all moments I decided to break up with him. And I was sure. This time, I chose to follow my inner voice instead of his.
 
-_Today_, I had a trip to Thủy Châu Ecotourism with Hoàng and Tân. It was a long trip, from 8AM to 3PM. I had to go home to lend Nhi my motorbike, so Tân said, "Maybe we cannot talk" (even though yesterday Tân said that we would talk tomorrow after the trip). So, I reluctantly but calmly said OK. To be honest, I was disappointed. We ended up with no arrangement to solve the problem.
+_Today_, I had a trip to Thủy Châu Ecotourism with Hoàng and Tân. It was a long trip, from 8AM to 3PM. I had to go home to lend Nhi my motorbike, so Tân said, "Maybe we cannot talk because of that" (even though yesterday Tân said that we would talk tomorrow after the trip). So, I reluctantly but calmly said OK. To be honest, I was disappointed. We ended up with no arrangement to solve the problem.
 
 I came home exhausted, so I went to sleep. About 1 hour later, I woke up. I thought: When would we talk? Tomorrow I had a study café with Nhi, so it would be hard to meet him. Would it drag to next week? And how long could I wait with his tiring office days? I made up my mind that I would not wait for him to solve it anymore. I should not rely on him, wait for him, or put the responsibility on him.
 
