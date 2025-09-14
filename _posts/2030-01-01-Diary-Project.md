@@ -11,7 +11,7 @@ From today, I will start writing a diary. I plan to write every day. This post w
 
 **It ended.**
 
-_Yesterday_, I was mad at Tân because he disappeared while texting with me. When he texted me, I didn't reply or see the message immediately, but only 1 minute later. Then he disappeared and went to cook, clean his room, and do research. 1 hour 30 minutes later, he came back and apologized with reasons like "I forgot", "because you replied late" or "because I was tired".
+_Yesterday_, I was mad at Tân because he disappeared while texting with me. When he texted me, I didn't reply or see the message immediately, but only 1 minute later. Then he disappeared and went to cook, clean his room, and do research. 1 hour 30 minutes later, he came back and apologized with reasons like "I forgot", "because you replied late", "because I was tired".
 
 This wasn't the first time it happened. After a long, tiring day at the office, he spends the evening doing his own things - sleeping, cooking, cleaning or studying - while barely sending me more than a few messages, avoiding texting until he finishes everything. I understand his situation and exhaustion, but I couldn't bear it anymore and left it unresolved. I couldn't keep forcing myself to sympathize when it only met my frustration. In the end, I just let my soul break, forgetting how to reason or even feel.
 
