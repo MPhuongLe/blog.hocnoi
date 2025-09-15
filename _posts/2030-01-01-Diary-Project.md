@@ -7,6 +7,32 @@ From today, I will start writing a diary. I plan to write every day. This post w
 
 ## September
 
+### 2025-09-15
+It was painful, annoying, yet strangely interesting to experience life after a breakup. He wandered in my mind whenever I was unoccupied. I couldn't find any calmness to focus on anything. Nothing could bring me a sense of peace. I had research to do and jobs to apply for, but I couldn't stop the urge to message him. So instead, I turned to housework — something that didn't demand much energy or attention. But still, it was such a painful experience.
+
+### 2025-09-15
+Today I went to Thu Duc Regional Hospital to have the stitch removed from my gum.
+- Since it was Monday, the hospital was overcrowded. I got my number at 8:50 AM, but wasn't called to the reception desk until 10:00 AM.
+- After waiting more than an hour for the health insurance process, I was told that the service wasn't covered since I hadn't extracted my wisdom tooth there. In the end, I had to pay 100.000 VND for a procedure that took only one minute!
+- Honestly, I think public medical services in HCMC are quite problematic. The fees feel like business charges rather than healthcare. For example, at District 5 Hospital there were only a few rooms, so they only offered outpatient service at about 1 million VND just to remove my lower wisdom tooth. At Thu Duc Regional Hospital — where I actually registered my health insurance — it cost around 3 million VND for outpatient care, and over 1 million VND for inpatient care, even with insurance. But when I decided to wait a few months and go to Buon Ma Thuot Hospital during a trip home, it cost only 115k for everything!
+
+### 2025-09-14
+At night, Tân texted me to apologize. He said he felt really bad for treating me that way. He admitted that even though he doesn't need care in the same way I do, he should have acknowledged and appreciated it. He said he should have recognized that I cared about him and simply informed me when he was busy, instead of disappearing.
+
+He texted me in a very calm manner, which kind of surprised me. His attitude hasn't changed much — it was exactly like before the breakup.
+
+I went to bed very early, but I couldn't stop thinking about him. Sometimes, ridiculous thoughts crossed my mind, like: "We should have broken up later so he could at least try my sương sáo jelly or chả ram." (This time I made them really delicious.) Sometimes I didn't even think anything but he was still there, like a vague sense, a feeling, a ghost. I couldn't sleep. And I rarely ever have insomnia, so I didn't know how to deal with it. I opened Dandadan and watched episodes 22 and 23, the latest ones. After that, I felt restless and even a little scared. I didn't dare look around because of the mirror near my feet. The mosquitoes were so annoying, but I was too scared to go outside and get the fan.
+
+Eventually, I texted him that I couldn't sleep. He asked about me and tried to talk. But by the time I messaged him, my mood had shifted. From longing for him, I suddenly started to avoid him. I dodged his questions about my day, avoided saying anything warm, and then told him I had to go to sleep then. I didn't even reply to his "good night" or "text me if you can't sleep."
+
+That was my post-breakup experience. It felt really bad — especially worse after Nhi left, when I had to face a sense of loss on my own.
+
+### 2025-09-13
+
+When I got home from the café, I saw a housemate watching reels while hanging clothes. I realized that many people are like that - in the dorm, in my old rental house - over-addicted to short, entertaining content. Suddenly it struck me: it's exactly like snacks.
+
+I've always tried to limit junk food because I know it's unhealthy, causes weight gain, and leads to other health problems. But I had never connected that idea to "food for the brain." These short, shallow videos are like junk food for the mind - unhealthy and damaging. I should avoid this kind of brain-snack, just as I avoid junk food for my body.
+
 ### 2025-09-13
 
 **It ended.**
