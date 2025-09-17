@@ -8,6 +8,9 @@ From today, I will start writing a diary. I plan to write every day. This post w
 ## September
 
 ### 2025-09-17
+Today I started reading The Diary of Anne Frank. It immediately drew me in — she’s blunt, even a bit rude at times, and I really like that honesty.
+
+### 2025-09-17
 I have registered for a 10-day Vipassana meditation course, which will take place from September 24 to October 5 at Chùa Y Sơn (Đồng Nai). Course schedules and updates are frequently posted [here](https://www.dhamma.org/vi/schedules/noncenter/vn), with sessions available in many provinces across Vietnam. My meditation site is about 20 km from my rented house.
 
 Course guidelines [here](https://github.com/MPhuongLe/blog.hocnoi/blob/main/_posts/Vipassana.pdf).
@@ -27,6 +30,9 @@ I could feel he wanted to talk to me. He kept asking about me, trying to keep th
 But the thing is, I said no — because we’re not lovers anymore. He was disappointed. He said I had given him hope. I felt sorry for that, though I’m not sure I would have done anything differently if time could go back. Still, I felt guilty, and I empathized with him. Yet he said it wasn’t my fault, because I only did what I believed was right. And that’s true. Last night, I simply followed my emotions and inner voice, my instinct telling me to act as I did.
 
 But now, at home and calmer, I know we won’t go back. We shouldn't go back to each other - it would only trap us in an inescapable loop.
+
+### 2025-09-17
+Today I read [Immune](https://shop-us.kurzgesagt.org/products/immune-a-journey-into-the-mysterious-system-that-keeps-you-alive?srsltid=AfmBOortAdJLoeCL7S6udz0KLPatW45y2k0odlLjg3vf1TUaufVqBB-x&variant=41719972167728) at Central Library - VNUHCM (dorm B). And I also borrow [The diary of Anne Frank](https://en.wikipedia.org/wiki/The_Diary_of_a_Young_Girl). It has been a long time since I last visited Central lib, and the new female assistant is really rude and annoying!
 
 ### 2025-09-16
 It’s been three days since we broke up. This is a really tough time for me.
