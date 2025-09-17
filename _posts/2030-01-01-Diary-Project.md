@@ -10,7 +10,7 @@ From today, I will start writing a diary. I plan to write every day. This post w
 ### 2025-09-17
 I have registered for a 10-day Vipassana meditation course, which will take place from September 24 to October 5 at Chùa Y Sơn (Đồng Nai). Course schedules and updates are frequently posted [here](https://www.dhamma.org/vi/schedules/noncenter/vn), with sessions available in many provinces across Vietnam. My meditation site is about 20 km from my rented house.
 
-Course guidelines [here](https://github.com/MPhuongLe/blog.hocnoi/blob/main/_posts/Vipassana.html).
+Course guidelines [here](https://github.com/MPhuongLe/blog.hocnoi/blob/main/_posts/Vipassana.pdf).
 
 ### 2025-09-17
 Gió thổi bay nhà tui rồiiiiiiii
