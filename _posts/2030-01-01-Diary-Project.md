@@ -7,6 +7,39 @@ From today, I will start writing a diary. I plan to write every day. This post w
 
 ## September
 
+### 2025-09-17
+
+### 2025-09-17
+Gió thổi bay nhà tui rồiiiiiiii
+
+The wind is blowing my house awayyyyyyy!
+[Video 1](https://www.youtube.com/watch?v=1tkr1jwvkeI)
+[Video 2](https://www.youtube.com/watch?v=bEXEQI2xemE)
+
+### 2025-09-17
+Tan texted me at 8:29 AM, saying he had arrived at the office.
+
+I could feel he wanted to talk to me. He kept asking about me, trying to keep the conversation going. He suggested riding me to buy a mosquito net because Nhi had borrowed my motorbike. He said he wanted to eat Sương Sáo. He offered to help fix the sun-blocking curtain since it was high and dangerous. And he told me he’d just received his salary and would send me the money for the induction hob, as he had promised.
+
+But the thing is, I said no — because we’re not lovers anymore. He was disappointed. He said I had given him hope. I felt sorry for that, though I’m not sure I would have done anything differently if time could go back. Still, I felt guilty, and I empathized with him. Yet he said it wasn’t my fault, because I only did what I believed was right. And that’s true. Last night, I simply followed my emotions and inner voice, my instinct telling me to act as I did.
+
+But now, at home and calmer, I know we won’t go back. We shouldn't go back to each other - it would only trap us in an inescapable loop.
+
+### 2025-09-16
+It’s been three days since we broke up. This is a really tough time for me.
+
+_Yesterday I had to create a new Facebook account because I removed the Facebook app from my phone and couldn’t log in without the authenticator. I only added a few important acquaintances I need to contact._
+
+_I texted Hai to go for coffee, but he was busy yesterday and moved it to tonight._
+
+_I couldn’t stop myself from messaging Tan — and I finally did. That’s when I knew that he had stalked me across the road in front of my house. He had stood there, looking toward the light from my terrace._
+
+I planned to ride Tú Nhi's bike to the café, but the tires were a little flat from disuse. So I decided to walk. On my way out I wondered: would Tan come tonight? I looked across the road and saw a shadow, but it was too dark to tell. I thought: even if it’s Tan, I shouldn’t go.
+
+So I started to walk away. But I couldn’t do it — I turned back and walked toward him. When I saw it was him, I felt really happy. I couldn’t stop smiling. He smiled back. As I got closer, he started to cry. I hugged him, comforted him. We talked. He cried again and again. I kissed him, touched his chest, hugged his head. After an hour, he rode me to the café. It was D’ran Café on Tan Lap Street, and I was an hour late.
+
+Nhi said I was wrong to let Hai wait like that. I don’t know — all I know is I had to do it.
+
 ### 2025-09-15
 It was painful, annoying, yet strangely interesting to experience life after a breakup. He wandered in my mind whenever I was unoccupied. I couldn't find any calmness to focus on anything. Nothing could bring me a sense of peace. I had research to do and jobs to apply for, but I couldn't stop the urge to message him. So instead, I turned to housework — something that didn't demand much energy or attention. But still, it was such a painful experience.
 
