@@ -8,8 +8,6 @@ From today, I will start writing a diary. I plan to write every day. This post w
 ## September
 
 ### 2025-09-17
-
-### 2025-09-17
 Gió thổi bay nhà tui rồiiiiiiii
 
 The wind is blowing my house awayyyyyyy!
