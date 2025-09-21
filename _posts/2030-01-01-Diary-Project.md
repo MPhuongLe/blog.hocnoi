@@ -7,6 +7,17 @@ From today, I will start writing a diary. I plan to write every day. This post w
 
 ## September
 
+### 2025-09-21
+This afternoon I went for a 3-hour walk (from 3:30 PM to 6:30 PM)! It was scary to walk alone in Làng Đại Học at night. My legs burnt out, and sometimes I thought I couldn’t continue anymore. When I finally got home, my legs were trembling and sore.
+
+I bought 2 pairs of long pants for the upcoming Vipassana course! I chose parachute pants because they’re light, thin, and waterproof. Most importantly, I wanted them to be reusable later for trekking and tours. I picked the ones with strings at the ankles so insects wouldn’t crawl inside. I told the shop owner that I didn’t like 2-layer parachutes because they’re uncomfortable, so she asked her husband to go to the storage house and bring back a big bag full of parachute pants! She helped me pick some 1-layer pants, which turned out to be not only much more comfortable but also very fashionable and pretty. I really loved them. I don’t care if the 2-layer type is considered better or more suitable for sports activities. Comfort should always come first!
+
+The parachute pants cost 120k each. Not bad, since they were so pretty. I also bought a new parachute jacket for 150k—the slimmest one in the row. The shop owner offered me a pair of socks as a gift, but I didn’t take them because I already had so many. And I was 99% sure they wouldn’t be as comfortable as my on-and-off socks. So instead, I suggested a discount (instead of a physical gift), and she agreed on 20k off. I also told her I would recommend her shop to my friend Tú Nhi if she wanted to buy new pants for the meditation course like me. She smiled and said, “Remember it!”
+
+She really made my day. She was one of the nicest shop owners I’ve ever met. I even told her I could work part-time there if I had time (she paid people 20k an hour to work part-time). She liked me and said I was_ dễ thương quá_ — that’s why she gave me a discount! She also told me to drop by to hang out sometime. Such a warm, charming, and sincere way to express kindness to people.
+
+I also shared with her about my major, my intention to study abroad, and my internship. As for her — she studied Printing Engineering (Graphic Design…) at Đại học Sư phạm Kỹ thuật. Now she lives there with her mom, her husband, a kid, and a 5-month-old baby. Life was really busy for her. She had to close another shop near Ký túc xá khu B because she couldn't manage.
+
 ### 2025-09-17
 Today I started reading The Diary of Anne Frank. It immediately drew me in — she’s blunt, even a bit rude at times, and I really like that honesty.
 
