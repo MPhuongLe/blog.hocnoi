@@ -8,6 +8,15 @@ From today, I will start writing a diary. I plan to write every day. This post w
 ## September
 
 ### 2025-09-22
+I’m really looking forward to the Vipassana course. After the breakup with Tân, I feel a deep need to reflect and refresh myself before moving on to the next plans.
+
+It was hard to sacrifice the application for the Technical Program Manager Intern position at Geocomply (a security company that organized the _Code Like a Girl_ challenge Tú Nhi joined last year). It’s such a pity, because the role was very special and interesting. The company also seemed open and friendly, and working there would have given me more opportunities to practice English.
+
+But right now, what I want the most is the meditation course!
+
+Fact: The Vipassana course not only overlapped with the Geocomply application but also fit perfectly into my next period... 
+
+### 2025-09-22
 This year, sometimes I feel like I really dislike being around and caring ungrateful people. In the past, I even thought of myself as ungrateful, because I didn’t need people to help me or worry about me unless I asked. But this year, that perspective has changed.
 
 It started with Tân. I thought he was selfish and ungrateful because when I cooked for him, he never showed any appreciation or helped me clean up after meals. He just sat there, eating and talking, before, during and after the meal. I was the one cooking, setting the table, cleaning the table, and washing the dishes afterwards. I don't care the reasons/intentions (he didn’t like washing dishes, it wasn’t his house, he didn’t know what to do, or I hadn’t asked him directly). Everything I need is performance. 
