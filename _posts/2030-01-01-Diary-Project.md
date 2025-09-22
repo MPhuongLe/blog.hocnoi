@@ -10,7 +10,7 @@ From today, I will start writing a diary. I plan to write every day. This post w
 ### 2025-09-22
 I’m really looking forward to the Vipassana course. After the breakup with Tân, I feel a deep need to reflect and refresh myself before moving on to the next plans.
 
-It was hard to sacrifice the application for the [Technical Program Manager Intern](https://github.com/MPhuongLe/blog.hocnoi/blob/main/_posts/Open%20Jobs%20_%20Technical%20Program%20Manager%20Intern%20-%20Ho%20Chi%20Minh.pdf) position at Geocomply (a security company that organized the _Code Like a Girl_ challenge Tú Nhi joined last year). It’s such a pity, because the role was very special and interesting. The company also seemed open and friendly, and working there would have given me more opportunities to practice English.
+It was hard to sacrifice the application for the [Technical Program Manager Intern](https://github.com/MPhuongLe/blog.hocnoi/blob/main/_posts/Open%20Jobs%20_%20Technical%20Program%20Manager%20Intern%20-%20Ho%20Chi%20Minh.pdf) at Geocomply (a security company that organized the _Code Like a Girl_ challenge Tú Nhi joined last year). It’s such a pity, because the role was very special and interesting. The company also seemed open and friendly, and working there would have given me more opportunities to practice English.
 
 But right now, what I want the most is the meditation course!
 
