@@ -14,7 +14,7 @@ It was hard to sacrifice the application for the Technical Program Manager Inter
 
 But right now, what I want the most is the meditation course!
 
-Fact: The Vipassana course not only overlapped with the Geocomply application but also fit perfectly into my next period... 
+Fact: The Vipassana course will not only overlap with the Geocomply application but also fit perfectly into my next period... 
 
 ### 2025-09-22
 This year, sometimes I feel like I really dislike being around and caring ungrateful people. In the past, I even thought of myself as ungrateful, because I didn’t need people to help me or worry about me unless I asked. But this year, that perspective has changed.
