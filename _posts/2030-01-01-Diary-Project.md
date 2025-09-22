@@ -8,6 +8,17 @@ From today, I will start writing a diary. I plan to write every day. This post w
 ## September
 
 ### 2025-09-22
+This year, sometimes I feel like I really dislike being around and caring ungrateful people. In the past, I even thought of myself as ungrateful, because I didn’t need people to help me or worry about me unless I asked. But this year, that perspective has changed.
+
+It started with Tân. I thought he was selfish and ungrateful because when I cooked for him, he never showed any appreciation or helped me clean up after meals. He just sat there, eating and talking, before, during and after the meal. I was the one cooking, setting the table, cleaning the table, and washing the dishes afterwards. I don't care the reasons/intentions (he didn’t like washing dishes, it wasn’t his house, he didn’t know what to do, or I hadn’t asked him directly). Everything I need is performance. 
+
+Then came Tú Nhi. Sometimes I feel like she has changed. She no longer compliments the food I cook for her like she used to. Today, when I finished cooking and asked if she wanted to eat since the food was ready. She barely paid attention and just replied superficially, “Cũng được...”. I told her I didn’t like that attitude: "I cooked for you and you shouldn't take it for granted. So you can eat later if you wanted". But she got annoyed and insisted she hadn’t behaved the way I said.
+
+Fine! I think I’ll just observe more. But if nothing changes, I’ll simply do things alone — cook for myself, eat by myself, and let her be.
+
+P/S: How childish I am! Maybe these things only happen because I’ve started to care more about people :((
+
+### 2025-09-22
 Recently I started watching and planning my finances. I divided my monthly income (from my parents) into envelopes. This idea was actually copied from Tú Nhi.
 
 I realized that digital money makes it very hard to track and control spending, because expenses happen too easily! Everything is so fast that we don’t have time to pause, take a look, or make a quick consideration. So I withdrew all the money and put it into physical envelopes.
