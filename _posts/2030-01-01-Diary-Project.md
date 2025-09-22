@@ -7,6 +7,41 @@ From today, I will start writing a diary. I plan to write every day. This post w
 
 ## September
 
+### 2025-09-22
+Recently I started watching and planning my finances. I divided my monthly income (from my parents) into envelopes. This idea was actually copied from Tú Nhi.
+
+I realized that digital money makes it very hard to track and control spending, because expenses happen too easily! Everything is so fast that we don’t have time to pause, take a look, or make a quick consideration. So I withdrew all the money and put it into physical envelopes.
+
+I once tried the 6 Jars Financial Management technique many times back in high school, but it never last long. The core problem (I guess) was that those things weren’t my real concerns. I didn’t feel why I should set money aside, invest, or buy less! I had to sacrifice everything I wanted for things I didn’t even understand what to do with (like investment!). So the system failed very quickly.
+
+Now the system feels different — and I can say it’s very personalized. For example, I have savings for medical services (like my problematic teeth or the recent abscess surgery). And since I already finished my thesis defense, I know money will soon become a bigger concern. I set aside 500k each month for savings.
+
+I also want to travel all the time, but money always holds me back. Putting 500k aside each month feels doable, and a small accumulation seems enough for a long trip! Besides, I grouped cafes, shopping, cinema, and books into one envelope, because while I do want to enjoy them sometimes, they’re not necessities — and I shouldn’t satisfy myself with all of them at once. Some can be sacrificed for others that are more important at the moment.
+
+So here’s the breakdown:
+
+- 2100k for room rent, electricity, and water usage. This also includes extra rent-related fees like washing machine usage, drinking water filter, parking, and trash service.
+
+- 1100k for standard food. If my parents send food from home, this money will be returned to them.
+
+- 250k for cafes with friends, shopping (clothes, books, etc.).
+
+- 150k for household purchases (from monthly needs like dish soap, trash bags, detergent to new setups like a shoe shelf or bookshelf).
+
+- 50k for skincare products.
+
+- 200k for basic transportation (fuel for motorbike, bus; Be bike is allowed but should be used carefully because 200k won’t last long with it).
+
+- 150k for gifts (birthdays, graduations, etc.).
+
+- 50k for backup (can be transferred to other envelopes if necessary; if not used, it goes into savings).
+
+- 500k for savings (medical services and other immediate needs).
+
+- 500k for travel/tours (to cover everything related: bus tickets, motorbike fuel, hotels, food, and activities during trips).
+
+That’s all! I can share that this new system feels really motivating for me, and I’ve truly enjoyed it so far. I’m looking forward to seeing how it turns out!
+
 ### 2025-09-21
 This afternoon I went for a 3-hour walk (from 3:30 PM to 6:30 PM)! It was scary to walk alone in Làng Đại Học at night. My legs burnt out, and sometimes I thought I couldn’t continue anymore. When I finally got home, my legs were trembling and sore.
 
