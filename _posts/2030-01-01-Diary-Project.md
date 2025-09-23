@@ -7,6 +7,31 @@ From today, I will start writing a diary. I plan to write every day. This post w
 
 ## September
 
+### 2025-09-23
+This morning, Tu Nhi said she had to go to a café with HCK, but she didn’t really want to. The reason was because HCK felt a bit "shy." Then Tu Nhi asked me if it would bother me if they studied in our room instead. I said no. So HCK came over.
+
+Tu Nhi made lemonade for the three of us. They sat outside at the working table on the balcony, so I had to stay inside and read. It was a bit uncomfortable because my space was occupied, but I could accept that this time. However, it shouldn't happen often.
+
+While reading, I realized that I might have to return the book before I leave for the Vipassana course. I asked Tu Nhi how long the borrowing period was — was it two weeks? She said three weeks, then quickly added that she had to work (so don’t bother her). Hmm... okay. It left me with a strange feeling. I think I’ll try to avoid bothering her as much as I can.
+
+### 2025-09-23
+This morning, Dr. Duy (our supervisor) texted us to remind us to get back to working on the paper:
+
+- Dr. Duy: @MinhPhuong @HoangDo hế lô hai đứa. Nghỉ ngơi đủ chưa? Quay lại chạy tiếp project được không?
+(The last time we met via Zoom was Aug 28, so it’s been nearly a month!)
+
+- Me: Xin phép thầy cho em quay lại trễ xíu, tại em đăng kí khóa thiền Vipassana 10 ngày sẽ bắt đầu vào ngày mai ạ.
+
+- Dr. Duy: ok :)
+
+- Me: Hì, tụi em ham chơi quá. Xin lỗi thầy ạ!
+
+- Dr. Duy: thôi không sao. 4 năm mà. Chơi bù đi. Rồi quay lại làm việc sau :D
+
+- Me: Em cảm ơn thầy 😍😍😍
+
+Woa, what a coincidence! These days I had often been worried about the project. I was afraid that our “disappearance” might have made him upset. But now all my nerves have just been swept away by his kindness and understanding. I feel sooo happy that I had to stop reading and write this down right away! 
+
 ### 2025-09-22
 I’m really looking forward to the Vipassana course. After the breakup with Tân, I feel a deep need to reflect and refresh myself before moving on to the next plans.
 
