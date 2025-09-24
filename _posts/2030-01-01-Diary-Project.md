@@ -7,6 +7,66 @@ From today, I will start writing a diary. I plan to write every day. This post w
 
 ## September
 
+### 2025-09-24
+
+Dear Minh Thu,
+
+Today is your graduation! What a special day :)
+
+A few days ago, TAK and I went to Go! Dĩ An supermarket to find the perfect gift for you. Through messages, we tried to brainstorm ideas — but honestly, it’s impossible to get anywhere serious with TAK! After much back-and-forth, we finally agreed not to buy tree pots or stuffed animals (though TAK kept trying to re-suggest tree pots!). “Expensive cakes” (as TAK called them) seemed like a better option, and I recommended the 350F tiramisu — the rectangle box version is excellent, with more wine! Though maybe you’d prefer the matchamisu? But in the end, we were worried cakes wouldn’t survive your long, busy graduation day schedule.
+
+Some other stupid ideas also came up: a phone case, a razor (?!), trâu gác bếp, a thermos, or even — ridiculously — an overpriced (and honestly ugly) watch winder. I swear, I can’t be serious for one minute when planning with TAK!
+
+So we finally went to the supermarket. We stopped by Fahasa, but quickly agreed that childish bookstore gifts weren’t your style. Nothing there for you. In the thermos section, we found a very cute tumbler with the text “Best Mom!” — and we wished it said something else! TAK joked that if we gave it to you, it would either be funny… or just plain weird.
+
+And then — finally — we found the perfect graduation gift! A beautiful box of mooncakes. We realized it was so meaningful and connected to your name: our lovely Bright Moon! We carefully chose the flavors and the design with you in mind. We truly hope you’ll love it.
+
+Congratulations, Minh Thu! You are officially no longer an FTUer!!!
+
+We love you so much,
+Your best friends,
+TAK and Minh Phương
+
+### 2025-09-23
+When I shared with Dr. Duy about my mom’s reaction to my vipassana participation, he joked: “Tell Mom you go meditate to purify your body and become more beautiful.” It was funny because in some ways it’s true! But honestly, my mom doesn’t care about my beauty — she only cares about me finding a job.
+
+Then Dr. Duy recommended: “Do you want to be a teaching assistant at our university?”
+I said: “Absolutely — as long as I don’t have to study a Master’s degree.”
+
+He explained that if I became a teaching assistant, I could earn a salary (about 10–12 million/month) and study for a Master’s degree for free. At first, I felt bored at the thought of studying here again. But he suggested the Master of Integrated Science program, which actually sounded exciting: **HCI, data visualization**, generative AI, and their applications. That caught my attention — there would be many things for me to explore.
+
+A side note to myself: I should remind and reassure my parents that I will eventually return and contribute to our faculty. And I should also be more careful with my words — never again say things like “trường đào tạo CNTT số một miền Nam.” Thank goodness Dr. Duy forgave my stupidity. I realized how disrespectful it sounded to my teachers. I’ll remember to avoid that mistake.
+
+For Dr. Duy, this opportunity is a really good path. When he graduated, things were harder. Maybe a “compulsory” two years of teaching will be enough time for me to prepare for a scholarship abroad. I hope I can go sooner. He also told me that if I get a scholarship, I can leave — the faculty won’t stop me.
+
+P.S. I also recommended this opportunity to Tân. But it seems harder for him to find a supervisor. With his difficult relationship with his old supervisor (and maybe even the vice principal), I just hope he can still be accepted.
+
+P.S. For myself, I really hope this will be enough for Mom and Dad... I don’t want to worry them anymore.
+
+### 2025-09-24
+I am very sad and disappointed.
+
+Last night, Nhi told Mom about my vipassana course on my behalf. I had thought Mom would listen to Nhi more than to me, and that Nhi could bear Mom better than I could.
+
+But it turned out to be a disaster. Nhi came back with frustration, anger, and disappointment. Mom didn’t listen to any reason or explanation. I could empathize. Poor Nhi had to face it all at the forefront! It should have been me.
+
+Nhi told me that Mom objected so strongly because of chú Quốc’s wife. She had started meditating, then seemed to lose interest in life and family; sometimes Mom even saw her meditating in the middle of the rubber farm, which scared her. With that, I could understand Mom a bit more.
+
+Nhi warned me to be careful. I reassured her that I would hide my phone and call her if necessary. Yes, it is illegal.
+
+Just two minutes after Nhi ended the call, at 8:46 PM, Mom texted me: “Con nghĩ sao mà đi ngồi thuyền vậy.” Nhi told me to ignore it, but I thought maybe I could change something. So, at 9:00 PM, I replied: “Cái này khóa học chứ không phải vớ vẩn mẹ ạ. Thầy con giới thiệu, thầy đi rồi nên ba mẹ yên tâm nha.” At 1:21 AM, maybe when she woke up for work, she finally replied: “Tuổi trẻ của con mẹ không thích.”
+
+As for Dad, at 9:20 PM I messaged him, trusting he would understand — he was always the calmer, wiser parent:
+“Con đi tham gia khóa học, sợ mẹ không cho nên con nhờ Nhi nói giúp mà mẹ phản ứng dữ dội quá. Con muốn nói với ba là khóa học này con đã tìm hiểu kĩ càng, thầy của con cũng đi rồi và thầy nói nó rất hay và bổ ích. Lần này con đi cùng Tú Nhi nữa. Ba tin tưởng và yên tâm nha!”
+
+At 5:48 AM he replied: “Chẳng có ai chẳng có áp lực. Chẳng có ai ko lo lắng cho con cái cả. Lớn rồi ba không nói nhiều.”
+
+I didn’t really understand what they meant about “pressure” and about my youth. Maybe it came from the conversation between Mom and Nhi — I could ask her later. But you know what? When I read those words, my heart sank.
+
+I realized I don’t truly understand my parents (why did I still hope and text them?). And they don’t understand me — not even Dad. Their replies felt almost unrelated to what I had said. Again and again, my reasons and explanations are never listened to. They never chose to hear me. They also never chose to persuade or explain.
+
+I feel guilty for making them sad, and at the same time deeply hurt. It’s painful. But I know very well that I will still go to the vipassana.
+
 ### 2025-09-23
 This morning, Tu Nhi said she had to go to a café with HCK, but she didn’t really want to. The reason was because HCK felt a bit "shy." Then Tu Nhi asked me if it would bother me if they studied in our room instead. I said no. So HCK came over.
 
