@@ -3,34 +3,40 @@ title: "Vipassana Experience"
 date: 2025-10-05
 ---
 
-Today I completed my 10-day vipassana course! To introduce, the Vipassana (mine and in general) is wonderful. Very wonderful, the most wonderful experience I have ever had in my life.
+Today I completed my 10-day vipassana course! To begin, *Vipassana is wonderful*. The most profound experience I've ever had in my life.
 
-I will tell you everything I can remember.
+Now I will tell you everything I can remember.
 
-**Day -1**
+## Day -1
 
-Days before the course, I was very excited and looking forward for it! That night, I felt the urge of going to it immediately, I wished I could go right that present, I wish the next day come quickly, and I wished I could start right in the morning instead of the afternoon. 
+Before the course began, I was incredibly excited and looking forward for it. That night, I wished I could go right away, that tomorrow would come faster, that the course would start in the morning instead of the afternoon.
 
-Tan said that I would get bored in 2 days, or at most 3 days. I totally disagreed. I was very positive about my future experience, full of lesson, full of maturity! I didn't feel any prolem with over 10 hours of meditation per day, and I didn't put any effort to imagine how it would be specifically. It must be good, I thought.
+Tan said that I would get bored after two days, maybe three at most. I completely disagreed. I was full of optimism - expecting lessons, growth, maturati. I didn't feel any worry with 10+ hours of daily meditation, and I didn't even try to imagine how it would be feel. I just thought, *It must be good*.
 
-I had some doubt, of course, because Nhi was very worried, my parents opposed it very strongly. I surfed YouTube to get some reviews, but no channels look "reliable" enough. The people looked too normal, maybe they seemed not smart, maybe they come there with spiritual minds, which I didn't. So I didn't watch any video. The only anchors I have was Thầy Phước (Stone Hill Farm) who had introduced it to Tu Nhi, and a youtuber I followed I the past but I could recall her name! So I put my doubt aside.
+Of course, I still had some doubts. Nhi was worried, and my parents were strongly against it. I looked up reviews on YouTube, but none of the channels seemed trustworthy. The people looked too orginary - not "smart" in the way I imagined - maybe too spiritual, which I wasn't. So I stopped watching. My biggest sources of reassurance were Thầy Phước (from Stone Hill Farm), who had introduced the course to Tu Nhi; and a youtuber I used to follow years ago - though I couldn't even recall her name! So, I put my doubts aside.
 
-Reasons I came for the Vipassana course:
-1. Recommendation for thay Phuoc
-2. I believe in the value of meditation (but failed to practice it), so I want to try a course to understand this technique
-3. When I was a high school student I followed a youtuber and she told she had took a 10-day vipassana course and I was curious about it so much.
-4. I had a continual curiosity (in contradiction) with buddishm. I hated most of my temple experience, but some people I met inspired me that bhudishm might be interesting and not like I often saw in temples.
+Why I decided to join Vipassana:
+1. It was recommended by Thầy Phước.
+2. I believed in the value of meditation (though I failed to practice it in the past), and wanted to experience a proper course.
+3. Back in high school, I followed a youtuber who once mentioned taking a 10-day vipassana course - I had sparked my curiosity ever since. In the course, I randomly catched her name from my mind: Một Đô.
+4. I'd always had a contradictory curiosity toward Buddhism. I hated most of my temple experiences, but certain people I met made me think Buddhism might be something deeper, something different from what I had seen.
 
-That night, I couldn't sleep because of many things. Thầy Duy shared with us the opportunity to worksp at our university as a teaching assistant and pursue Master of Integrated Science - the faculty that he founded. It was a very good opprtunity for my path to study aboard, and I kinda like teaching! But there were also concerns, like I might have to commit to work there for 2 years, or I don't really like to continue boring and shallow studying but I still had no idea how to change it now, with the same environment (maybe it meant in Vietnamese schools) - I think I need a new method and perspectives of education. However, it was still a good opportunity at present. I have to finish my research about origami learning system with a publish, I have to practice English, I have to prepare for the application for the scholarship! So many things to think about.
+That night, I couldn't sleep - my mind was full. Earlier Thầy Duy had shared an opportunity to work as as a teaching assistant at our university and pursue the Master of Integrated Science program - which he founded. It sounded a great chance, both for my plan to study aboard and beacause I actually enjoy teaching.
 
-That night Nhi also texted me to say that Mom reacted very strongly and negatively to my participation to the meditation course. Until now, I haven't got any idea of what they had discussed, but it appeared to be very serious. Mom texted to me: "Con nghĩ sao mà đi ngồi thuyền vậy?". 
+Still, I had concerns. It might require a two-year commitment. And to be honest, I don't want to continue boring and shallow learning but I still had no idea how to change it now with the same environment here - I think I need a new method and perspectives on education. But even so, it was a valuable opportunity for now. I have to finish my origami learning system research (and hopefully publishing it), improve my English, and prepare for my scholarship application! So many things to think about.
 
-Her reaction was as expected, though I was very stressed. I had hoped that Nhi would work well with mom than me but it turned out to be not. The truth was that Nhi come back to me, frustrated and angry.
+Then, Nhi texted me saying that Mom reacted very strongly and negatively about my decision to attend the meditation course. Until now, I didn't know exactly what they had discussed, but it sounded serious. Mom had texted me: 
 
-I barely slept that night. It was like 1 or 2 AM that I was still aware of things, sometimes there was only silence, sometimes someone arrived home, there were 
- conversations, there was stairs' light, there were phone calls from the next-door neighbor, and his music. I got up and went toward his room, nocked, called him, but no one replied. I pushed the door and surprisingly it opened. He was sleeping, with the non-stop music from his desktop, and even the youtube video reviewing/advertising pans unceasingly. Helpless, I went to the computer and pause the music.
+*“Con nghĩ sao mà đi ngồi thiền vậy?”
+(“What are you thinking, going to meditate like that?”)*
 
-I came back to my bed. Next 5 minutes, the music started again. I got up and again tol tell him, and finally there was no more music. I slept.
+Her reaction didn't surprised me, but it still made me anxious. I had hoped Nhi could go well with mom than me, but it turned out to be not. She ended up returning to me frustrated and angry.
+
+That night, I barely slept. It must have been 1 or 2AM — I lay there, aware of every sound: the silence, someone coming home, faint conversations, the stairway light turning on and off, the next-door neighbor’s phone call, his music.
+
+Finally, I got up and knocked on his door because his music kept blaring. No answer. I pushed the door, and to my surprise, it opened. He was sleeping, with YouTube videos about frying pans playing endlessly on his phone. I paused the music and went back to my room.
+
+Five minutes later, the music started again. I got up once more, told him, and at last, it stopped. Only then could I sleep.
  
 **Day 0**
 
@@ -227,6 +233,7 @@ This night, all students were gathered around to watch movie. It was a documenta
 
 
 **Day 11**
+
 We got up, go to the meditation hall to practice in 2 hours (I'm not sure). Then, we were assigned cleaning tasks. I and Tú Nhi took the left one of cleaning the toilets. We did it too thoroughly that we were the last to finish (with the manager's help), eat breakfast (we shared a vegetarian Banh mi), and leave. Before leaving, we went to the manager room to donate. 500k for both of us. There we met the woman who waked me up in a morning. That t.ime I didn't like her much and I guessed she was a very Fastidious. But now talking to her I saw her to be a very charming and nice woman. She shared us a lot of stuff about meditation. 
 
 (add picture here - the notes)
