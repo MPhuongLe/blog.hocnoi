@@ -8,7 +8,7 @@ Two days ago, I found a very special street vendor Bánh xèo while driving arou
 <p align="center">
   <img src="https://i.pinimg.com/736x/8e/fa/6a/8efa6a32fc63f47ece5c1725263f7a1b.jpg" width="80%">
   <br>
-  <em>Typical types of herbs and veggies usually eaten with Bánh xèo are:<br> xà lách, rau cải cay, húng quế, diếp cá, tía tô</em>
+  <em>Typical types of herbs and veggies usually eaten with Bánh xèo are: xà lách, rau cải cay, húng quế, diếp cá, tía tô</em>
 </p>
 
 Sometimes I see other *unusual* types of veggies served with *Bánh xèo miền Tây*, such as: lá xoài non, lá cóc, lá bằng lăng, chòi mòi (you can see them [here](https://www.bachhoaxanh.com/kinh-nghiem-hay/kham-pha-cac-loai-rau-an-banh-xeo-mien-tay-ban-khong-the-bo-qua-1396792)). Vietnamese people don't usually eat them in daily meals (at least not in my hometown Dak Lak and HCM City). They do taste different, but to me, they don't change the original flavor of the dish that much.
