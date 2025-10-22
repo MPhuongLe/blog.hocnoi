@@ -69,8 +69,12 @@ Above is Vietnamese chicken salad (gỏi gà), mixed with brown onion and always
 
 In Vietnam, trứng vịt lộn (balut) is always eaten with rau răm and muối tiêu (salt and pepper). It’s a popular street snack that friends (both the young and the elder generation) enjoy together when hanging out. My mom sometimes buys some to serve at home because they are nutritious. There’s also a common folk belief in Vietnam that eating trứng vịt lộn helps “reverse bad luck” (xả xui), since the word lộn literally means “to turn over” or “to reverse” — symbolizing turning misfortune into good fortune. My younger sibling actually reminded me of this, since I usually don’t pay attention to superstitious things like that.
 
+<div style="text-align: center;">
+  <img src="https://i.pinimg.com/1200x/72/1b/50/721b504139d6a9acd410fbb66b128af5.jpg" width="60%">
+  <p><em>Vietnamese mixed rice paper</em></p>
+</div>
 
-
+Besides, **rau răm** is also used in *bánh tráng trộn*, meaning mixed rice paper or rice paper salad. This is a very popular Vietnamese street food among young people and students! It originated from Tây Ninh, the homeland of rice paper, and has since spread across the country and even abroad. It is considered a cultural symbol of Vietnamese street food. You should definitely try it! Personally, I think the pre-packaged dry versions of bánh tráng trộn are absolutely not good, but the ones mixed fresh with ingredients like mango, fried shallots, boiled quail eggs, đậu phộng rang and rau răm are incredibly delicious!
 
 ### 2. Lá mơ
 
@@ -108,7 +112,14 @@ In Vietnam, lá mơ appears in two typical dishes: **thịt heo luộc** (boiled
   <em>Boiled pork served with lettuce and other herbs and ingredients (left) <br> vs. Boiled pork served with lá mơ only (right)</em>
 </p>
 
-According to a friend, her family often eats lá mơ alongside lettuce and a variety of other herbs with boiled pork. In my family, however, lá mơ is always served on its own with pork. We simply place a slice of pork on the leaf, wrap it up, dip it in fish sauce, and enjoy. The flavor is original — simple, yet deeply satisfying.
+According to a friend, her family often eats lá mơ alongside lettuce and a variety of other herbs with boiled pork. In my family, however, lá mơ is always served on its own with pork. We simply place a slice of pork on the leaf, wrap it up, dip it in fish sauce, and enjoy. The flavor is original — simple, yet deeply satisfying. 
+
+In addition, lá mơ is also considered an essential part of thịt chó (dog meat) — a protein-rich drinking dish traditionally favored by Vietnamese men, though it has become increasingly rare today due to ethical concerns.
+
+<div style="text-align: center;">
+  <img src="https://i.pinimg.com/736x/ac/d7/ba/acd7baf8e505e1a90037d148a8e71b7a.jpg" width="80%">
+  <p><em>Dog meat, often served with lá mơ or mắm tôm (Vietnamese fermented shrimp paste). A perfect dog meat dish is never complete without one of these two.</em></p>
+</div>
 
 ***Omelette***
 
