@@ -6,7 +6,7 @@ date: 2025-10-05
 Two days ago, I found a very special street vendor Bánh xèo while driving around with my friend. Why was it so special to me? The answer lies in the herbs.
 
 <p align="center">
-  <img src="https://cdn.eva.vn/upload/3-2020/images/2020-07-16/ong-xa-trong-rau-xum-xue-trinh-kim-chi-thich-thu-ra-tay-lam-banh-xeo-dai-ca-gia-dinh-109088758_3276443842394353_6602773945362295657_o-1594875119-811-width660height543.jpg" width="80%">
+  <img src="https://i.pinimg.com/736x/8e/fa/6a/8efa6a32fc63f47ece5c1725263f7a1b.jpg" width="80%">
   <br>
   <em>Typical types of herbs and veggies usually eaten with Bánh xèo are:<br> xà lách, rau cải cay, húng quế, diếp cá, tía tô</em>
 </p>
@@ -26,17 +26,17 @@ The order below is simply by my personal preference, not on popularity.
 <table>
   <tr>
     <td width="40%" align="center">
-      <img src="https://i.ytimg.com/vi/4m0uKgNSOWE/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLAuDONzSAOSWgW5b5KYSFbolGmp8A" alt="Image 1" width="100%"/><br>
+      <img src="https://i.pinimg.com/736x/e4/45/4c/e4454ccf233b13466fdedfb3b6d44837.jpg" alt="Image 1" width="100%"/><br>
       <em>A rau răm farm</em>
     </td>
     <td width="60%" rowspan="2" align="center">
-      <img src="https://cdnv2.tgdd.vn/bhx-static/bhx/Products/Images/8820/309149/bhx/rau-ram-50g_202505091351343680.jpg" alt="Image 3" width="100%" /><br>
+      <img src="https://i.pinimg.com/736x/ae/35/c3/ae35c356bf571e4e88431b5f06c01125.jpg" alt="Image 3" width="100%" /><br>
       <em>A pack of rau răm in Bách hóa xanh,<br>price 3,500 VND</em>
     </td>
   </tr>
   <tr>
     <td width="40%" align="center">
-      <img src="https://xachtaynhat.net/wp-content/uploads/2023/03/rau-ram.jpeg" alt="Image 2" width="100%"/><br>
+      <img src="https://i.pinimg.com/736x/98/24/dd/9824dd0fc16ccb447cfd7b5f0f583940.jpg" alt="Image 2" width="100%"/><br>
       <em>Fresh rau răm leaves</em>
     </td>
   </tr>
@@ -48,18 +48,24 @@ According to Wikipedia, rau răm is popular in South East Asian cuisine. In othe
 From my experience, rau răm isn’t used in many dishes. It appears most commonly in **gỏi gà** (chicken salad) and **trứng vịt lộn** (balut), where the herb truly shines. Occasionally, I’ve seen it in other chicken or duck dishes, such as cháo gà (chicken porridge) or bún thang (a noodle dish from Northern Vietnam).
 
 <p align="center">
-  <img src="https://file.hstatic.net/200000700229/article/goi-ga-rau-ram-hanh-tay-1_df0f14fa06bd4848aa820b2d68a832c8.jpg" width="80%">
+  <img src="https://i.pinimg.com/736x/32/04/d9/3204d98e06e10ea5d43ccac02c7124eb.jpg" width="80%">
 <br>
 <em>Chicken salad</em>
 </p>
 
 Above is Vietnamese chicken salad (gỏi gà), mixed with brown onion and always flavored with rau răm. This is a typical dish in traditional Vietnamese family gatherings. Among the protein- and oil-rich dishes at these parties, chicken salad stands out for its lightness and freshness. I really love it!
 
-<p align="center">
-  <img src="https://cdn.tienphong.vn/images/a6bf4f60924201126af6849ca45a398000817fa5dd6fb0c23f843852a5fadf4d57dfa0ab765ba782ddeb67e44748117b7f5bfa2d913557fb59bf007a392bd48c185a656eb5f32771d791f182dc4fffdf744ab608aca1e30d95d2fa6b1d402c06/chon-mua-trung-vit-lon-07112023091035-1579.jpg" width="80%">
-  <br>
-  <em>Vietnamese Balut</em>
-</p>
+<div style="display: flex; justify-content: center; gap: 20px; text-align: center; flex-wrap: wrap;">
+  <div style="flex: 1 1 45%;">
+    <img src="https://i.pinimg.com/736x/a0/a1/0f/a0a10fd8d55c3092869e29c52ac3abfe.jpg" width="100%">
+    <p><em>Vietnamese Balut</em></p>
+  </div>
+  <div style="flex: 1 1 48%;">
+    <img src="https://i.pinimg.com/736x/da/b8/83/dab88336ac77b5450601ca388db788c4.jpg" width="100%">
+    <p><em>Friends enjoying balut together</em></p>
+  </div>
+</div>
+
 
 In Vietnam, trứng vịt lộn (balut) is always eaten with rau răm and muối tiêu (salt and pepper). It’s a popular street snack that friends (both the young and the elder generation) enjoy together when hanging out. My mom sometimes buys some to serve at home because they are nutritious. There’s also a common folk belief in Vietnam that eating trứng vịt lộn helps “reverse bad luck” (xả xui), since the word lộn literally means “to turn over” or “to reverse” — symbolizing turning misfortune into good fortune. My younger sibling actually reminded me of this, since I usually don’t pay attention to superstitious things like that.
 
@@ -72,17 +78,17 @@ In Vietnam, trứng vịt lộn (balut) is always eaten with rau răm and muối
 <table>
   <tr>
     <td width="40%" align="center">
-      <img src="https://product.hstatic.net/200000385233/product/la-mo-5_76c79bfb99854be0a111dc41f41a238b.jpg" alt="Image 2" width="100%"/><br>
+      <img src="https://i.pinimg.com/736x/1a/58/4a/1a584a2ced5ea1e4aba621d44d1c36c7.jpg" alt="Image 2" width="100%"/><br>
   <em>Lá mơ is often grown<br> climbing along fences</em>
     </td>
     <td width="55%" rowspan="2" align="center">
-      <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/8/88/L%C3%A1_m%C6%A1_l%C3%B4ng.jpg/500px-L%C3%A1_m%C6%A1_l%C3%B4ng.jpg" alt="Image 3" width="100%" /><br>
+      <img src="https://i.pinimg.com/736x/20/fa/cd/20facd0f3036f1b27cd04ee6cb5631ee.jpg" alt="Image 3" width="100%" /><br>
       <em></em>
     </td>
   </tr>
   <tr>
     <td width="40%" align="center">
-      <img src="https://suckhoedoisong.qltns.mediacdn.vn/324455921873985536/2024/10/13/photo-1728824914580-1728824914731248619726.jpeg" alt="Image 1" width="100%"/><br><em>Lá mơ leaves</em>
+      <img src="https://i.pinimg.com/736x/8e/1b/3e/8e1b3e170e576da00d2bd8d5c7c7db91.jpg" alt="Image 1" width="100%"/><br><em>Lá mơ leaves</em>
     </td>
   </tr>
 </table>
@@ -95,7 +101,7 @@ In Vietnam, lá mơ appears in two typical dishes: **thịt heo luộc** (boiled
 #### *Boiled pork*
 
 <p float="left" align="center">
-  <img src="https://helenrecipes.com/wp-content/uploads/2021/06/Screenshot-2021-06-14-110432.png" width="45%" />
+  <img src="https://i.pinimg.com/736x/ec/85/27/ec8527e46a07420c54f4e042e9c3c034.jpg" width="45%" />
   <img src="https://i.pinimg.com/736x/cc/fc/86/ccfc86613f4d9de75512c160a7f7fdb2.jpg" width="45%" />
 </p>
 <p align="center">
@@ -111,7 +117,7 @@ According to a friend, her family often eats lá mơ alongside lettuce and a var
     <p>Spring onion omelette</p>
   </div>
   <div style="flex: 1 1 13.3%;">
-    <img src="https://img-global.cpcdn.com/comments/1621efd3f1fdd363/1360x1360cq80/photo.webp" width="100%" />
+    <img src="https://i.pinimg.com/736x/f3/c0/7f/f3c07f2bd7189c140078ea9c370a1ced.jpg" width="100%" />
     <p>Tomato omelette</p>
   </div>
   <div style="flex: 1 1 30%;">
