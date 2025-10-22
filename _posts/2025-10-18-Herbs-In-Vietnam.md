@@ -96,9 +96,9 @@ In Vietnam, trứng vịt lộn (balut) is always eaten with rau răm and muối
 
 Lá mơ (Paederia lanuginosa) is a type of leaf with fine hairs, coming from a climbing plant — hence its other name, mơ lông (“hairy mơ”). There is very little information about this plant on Wikipedia; it is simply noted as “edible and used as a vegetable in Vietnam.” In general, it has a distinctive, slightly bitter flavor, though I lack the precise vocabulary to describe its taste and aroma in detail.
 
-In Vietnam, lá mơ appears in two typical dishes: **thịt heo luộc** (boiled pork) and **trứng chiên** (fried eggs).
+In Vietnam, lá mơ appears in two typical dishes: **thịt heo luộc** (boiled pork) and **trứng chiên** (omelette).
 
-#### *Boiled pork*
+***Boiled pork***
 
 <p float="left" align="center">
   <img src="https://i.pinimg.com/736x/ec/85/27/ec8527e46a07420c54f4e042e9c3c034.jpg" width="45%" />
@@ -108,8 +108,9 @@ In Vietnam, lá mơ appears in two typical dishes: **thịt heo luộc** (boiled
   <em>Boiled pork served with lettuce and other herbs and ingredients (left) <br> vs. Boiled pork served with lá mơ only (right)</em>
 </p>
 
-
 According to a friend, her family often eats lá mơ alongside lettuce and a variety of other herbs with boiled pork. In my family, however, lá mơ is always served on its own with pork. We simply place a slice of pork on the leaf, wrap it up, dip it in fish sauce, and enjoy. The flavor is original — simple, yet deeply satisfying.
+
+***Omelette***
 
 <div style="display: flex; justify-content: center; gap: 10px; text-align: center; flex-wrap: wrap;">
   <div style="flex: 1 1 30%;">
