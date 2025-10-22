@@ -68,7 +68,9 @@ Above is basic Vietnamese chicken salad (gỏi gà), mixed with brown onion and 
 
 ***Balut***
 
-In Vietnam, trứng vịt lộn (balut) is always eaten with rau răm and muối tiêu (salt and pepper). It’s a popular street snack that friends (both the young and the elder generation) enjoy together when hanging out. My mom buys some to serve at home occasionally because they are nutritious. There’s also a common folk belief in Vietnam that eating trứng vịt lộn helps “reverse bad luck” (xả xui), since the word lộn literally means “to turn over” or “to reverse” - symbolizing turning misfortune into good fortune. My younger sibling actually reminded me of this, since I usually don’t pay attention to superstitious things like that.
+In Vietnam, trứng vịt lộn (balut) is always eaten with rau răm and muối tiêu (salt and pepper). It’s a popular street snack that friends (both the young and the elder generation) enjoy together when hanging out. My mom buys some to serve at home occasionally because they are nutritious. 
+
+There’s also a common folk belief in Vietnam that eating trứng vịt lộn helps “reverse bad luck” (xả xui), since the word lộn literally means “to turn over” or “to reverse” - symbolizing turning misfortune into good fortune. My younger sibling actually reminded me of this, since I usually don’t pay attention to superstitious things like that.
 
 ***Mixed rice paper***
 
@@ -163,16 +165,4 @@ In addition, lá mơ is also considered an essential part of thịt chó (dog me
 <div style="text-align: center;">
   <img src="https://i.ytimg.com/vi/1bE42vGqz0M/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLDZlP_ZvkZ2LqOiqaB7n7URnQbU9w" width="80%">
 </div>
-
-
-
-
-
-
-
-
-
-
-
-
 
