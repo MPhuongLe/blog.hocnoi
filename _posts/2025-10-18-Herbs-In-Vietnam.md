@@ -69,10 +69,17 @@ Above is Vietnamese chicken salad (gỏi gà), mixed with brown onion and always
 
 In Vietnam, trứng vịt lộn (balut) is always eaten with rau răm and muối tiêu (salt and pepper). It’s a popular street snack that friends (both the young and the elder generation) enjoy together when hanging out. My mom sometimes buys some to serve at home because they are nutritious. There’s also a common folk belief in Vietnam that eating trứng vịt lộn helps “reverse bad luck” (xả xui), since the word lộn literally means “to turn over” or “to reverse” — symbolizing turning misfortune into good fortune. My younger sibling actually reminded me of this, since I usually don’t pay attention to superstitious things like that.
 
-<div style="text-align: center;">
-  <img src="https://i.pinimg.com/1200x/72/1b/50/721b504139d6a9acd410fbb66b128af5.jpg" width="60%">
+<div style="display: flex; justify-content: center; gap: 20px; text-align: center; flex-wrap: wrap;">
+  <div style="flex: 1 1 50%;">
+    <img src="https://i.pinimg.com/1200x/72/1b/50/721b504139d6a9acd410fbb66b128af5.jpg" width="60%">
   <p><em>Vietnamese mixed rice paper</em></p>
+  </div>
+  <div style="flex: 1 1 45%;">
+    <img src="https://i.pinimg.com/736x/53/5c/d3/535cd32e85092b22a48c495267cfd4b0.jpg" width="100%">
+    <p><em>A street vendor making mixed rice paper</em></p>
+  </div>
 </div>
+
 
 Besides, **rau răm** is also used in *bánh tráng trộn*, meaning mixed rice paper or rice paper salad. This is a very popular Vietnamese street food among young people and students! It originated from Tây Ninh, the homeland of rice paper, and has since spread across the country and even abroad. It is considered a cultural symbol of Vietnamese street food. You should definitely try it! Personally, I think the pre-packaged dry versions of bánh tráng trộn are absolutely not good, but the ones mixed fresh with ingredients like mango, fried shallots, boiled quail eggs, đậu phộng rang and rau răm are incredibly delicious!
 
