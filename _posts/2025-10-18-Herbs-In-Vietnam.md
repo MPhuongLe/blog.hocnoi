@@ -154,7 +154,15 @@ In addition, lá mơ is also considered an essential part of thịt chó (dog me
   <p><em>Dog meat, often served with lá mơ or mắm tôm (Vietnamese fermented shrimp paste). A perfect dog meat dish is never complete without one of these two.</em></p>
 </div>
 
+**Fun facts about lá mơ from my younger sibling:**
 
+1. Lá mơ has another name, *Lá thúi địch*, which literally means "fart-smelling leaf". This name comes from the odor released when the leaves are crushed (when whole, they give off very little essential oil). I think I've heard this name a few times before, but it’s not very common, so I never really remembered it or used it.
+
+2. In the Mekong Delta (miền Tây), there is a dish made with lá mơ called *Bánh tằm lá mơ* (see the image below). I had never heard of this dish before!
+
+<div style="text-align: center;">
+  <img src="https://i.ytimg.com/vi/1bE42vGqz0M/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLDZlP_ZvkZ2LqOiqaB7n7URnQbU9w" width="80%">
+</div>
 
 
 
