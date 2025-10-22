@@ -15,7 +15,7 @@ Sometimes I see other *unusual* types of veggies served with *Bánh xèo miền 
 
 But this street vendor has an *excellent* choice of herbs for her Bánh xèo: she used **lá mơ** and **lá lốt**. They are both very familiar to me - and to most Vietnamese - but we never eat them with Bánh xèo. I realized that the reason they stood out is their *unique aroma and taste*. They bring something new and unexpected to the familiar flavor of the dish.
 
-Inspired by lá mơ and lá lốt, I decided to write this blog to introduce some typical herbs used in Vietnamese cuisine. We people use *a lot* of herbs - too many for most young people to remember! :) But they are an indispensable part and add greatly to the soul of our cuisine. 
+Inspired by lá mơ and lá lốt, I decided to write this blog to introduce some typical herbs used in Vietnamese cuisine. We use *a lot* of herbs - too many for most young people to remember! :) But they are an indispensable part and add greatly to the soul of our cuisine. 
 
 The order below is simply by my personal preference, not on popularity.
 
