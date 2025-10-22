@@ -83,7 +83,7 @@ Besides, **rau răm** is also used in *bánh tráng trộn*, meaning mixed rice 
   <tr>
     <td width="40%" align="center">
       <img src="https://i.pinimg.com/736x/1a/58/4a/1a584a2ced5ea1e4aba621d44d1c36c7.jpg" alt="Image 2" width="100%"/><br>
-  <em>Lá mơ is often grown<br> climbing along fences</em>
+  <em>Lá mơ is often grown climbing along fences</em>
     </td>
     <td width="55%" rowspan="2" align="center">
       <img src="https://i.pinimg.com/736x/20/fa/cd/20facd0f3036f1b27cd04ee6cb5631ee.jpg" alt="Image 3" width="100%" /><br>
