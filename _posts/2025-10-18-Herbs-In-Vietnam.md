@@ -20,7 +20,7 @@ Inspired by lá mơ and lá lốt, I decided to write this blog to introduce som
 The order below is simply by my personal preference, not on popularity.
 
 ---
-### 1. Rau răm (Coriander)
+### 1. Rau răm (Vietnamese coriander)
 
 <div align="center">
 <table>
@@ -45,15 +45,15 @@ The order below is simply by my personal preference, not on popularity.
 
 According to Wikipedia, rau răm is popular in South East Asian cuisine. In other languages, it's sometimes called *Vietnamese coriander* or  *Vietnamese mint*, even though it isn't related to mints either in taste or botanical family.  
 
-From my experience, rau răm isn’t used in many dishes. It appears most commonly in **gỏi gà** (chicken salad) and **trứng vịt lộn** (balut), where the herb truly shines. Occasionally, I’ve seen it in other chicken or duck dishes, such as cháo gà (chicken porridge) or bún thang (a noodle dish from Northern Vietnam).
+From my experience, rau răm isn’t used in many dishes. It appears most commonly in **gỏi gà** (chicken salad) and **trứng vịt lộn** (balut), where the herb truly shines. Occasionally, I’ve seen it in other chicken or duck dishes, such as cháo gà/vịt (chicken/duck porridge) or bún thang (a noodle dish from Northern Vietnam).
+
+***Chicken salad***
 
 <p align="center">
   <img src="https://i.pinimg.com/736x/32/04/d9/3204d98e06e10ea5d43ccac02c7124eb.jpg" width="80%">
-<br>
-<em>Chicken salad</em>
 </p>
 
-Above is Vietnamese chicken salad (gỏi gà), mixed with brown onion and always flavored with rau răm. This is a typical dish in traditional Vietnamese family gatherings. Among the protein- and oil-rich dishes at these parties, chicken salad stands out for its lightness and freshness. I really love it!
+Above is basic Vietnamese chicken salad (gỏi gà), mixed with brown onion and always flavored with rau răm. This is a typical dish in traditional Vietnamese family gatherings. Among the protein-rich and oil-rich dishes at the parties, chicken salad stands out for its lightness and freshness. I really love it!
 
 <div style="display: flex; justify-content: center; gap: 20px; text-align: center; flex-wrap: wrap;">
   <div style="flex: 1 1 45%;">
@@ -66,8 +66,11 @@ Above is Vietnamese chicken salad (gỏi gà), mixed with brown onion and always
   </div>
 </div>
 
+***Balut***
 
-In Vietnam, trứng vịt lộn (balut) is always eaten with rau răm and muối tiêu (salt and pepper). It’s a popular street snack that friends (both the young and the elder generation) enjoy together when hanging out. My mom sometimes buys some to serve at home because they are nutritious. There’s also a common folk belief in Vietnam that eating trứng vịt lộn helps “reverse bad luck” (xả xui), since the word lộn literally means “to turn over” or “to reverse” — symbolizing turning misfortune into good fortune. My younger sibling actually reminded me of this, since I usually don’t pay attention to superstitious things like that.
+In Vietnam, trứng vịt lộn (balut) is always eaten with rau răm and muối tiêu (salt and pepper). It’s a popular street snack that friends (both the young and the elder generation) enjoy together when hanging out. My mom buys some to serve at home occasionally because they are nutritious. There’s also a common folk belief in Vietnam that eating trứng vịt lộn helps “reverse bad luck” (xả xui), since the word lộn literally means “to turn over” or “to reverse” - symbolizing turning misfortune into good fortune. My younger sibling actually reminded me of this, since I usually don’t pay attention to superstitious things like that.
+
+***Mixed rice paper***
 
 <div style="display: flex; justify-content: center; gap: 20px; text-align: center; flex-wrap: wrap;">
   <div style="flex: 1 1 50%;">
@@ -80,9 +83,9 @@ In Vietnam, trứng vịt lộn (balut) is always eaten with rau răm and muối
   </div>
 </div>
 
-Besides, **rau răm** is also used in *bánh tráng trộn* — literally “mixed rice paper” or “rice paper salad.” This is a very popular Vietnamese street food, especially among young people and students! It originated in Tây Ninh, the homeland of rice paper, and has since spread across the country and even abroad. Today, it is considered a cultural symbol of Vietnamese street food. You should definitely try it! Personally, I find the pre-packaged dry versions of bánh tráng trộn disappointing, but the freshly mixed ones - with ingredients like shredded green mango (xoài xanh bào sợi), fried shallots (hành phi), boiled quail eggs (trứng cút luộc), roasted tiny shrimp (tép rang), roasted peanuts (đậu phộng rang), various seasonings, and of course, rau răm — are absolutely delicious! One more thing: a truly good bánh tráng trộn also requires proper mixing technique, so that the rice paper is neither too hard nor too soft in the final dish.
+Besides, rau răm is also used in **bánh tráng trộn** — literally “mixed rice paper” or “rice paper salad.” This is a very popular Vietnamese *street food*, especially among the young and students! The dish originated in Tây Ninh, the homeland of rice paper, and has since spread across the country and even abroad. Today, it is considered a cultural symbol of Vietnamese street food. You should definitely try it! Personally, I find the pre-packaged dry versions of bánh tráng trộn disappointing, but the freshly mixed ones - with ingredients like shredded green mango (xoài xanh bào sợi), fried shallots (hành phi), boiled quail eggs (trứng cút luộc), roasted tiny shrimp (tép rang), roasted peanuts (đậu phộng rang), various seasonings, and of course, rau răm - are absolutely delicious! One more thing: a truly good bánh tráng trộn also requires proper mixing technique, so that the rice paper is neither too hard nor too soft in the final dish.
 
-### 2. Lá mơ
+### 2. Lá mơ (Paederia lanuginosa)
 
 <div align="center">
 <table>
@@ -104,9 +107,9 @@ Besides, **rau răm** is also used in *bánh tráng trộn* — literally “mix
 </table>
 </div>
 
-Lá mơ (Paederia lanuginosa) is a type of leaf with fine hairs, coming from a climbing plant — hence its other name, mơ lông (“hairy mơ”). There is very little information about this plant on Wikipedia; it is simply noted as “edible and used as a vegetable in Vietnam.” In general, it has a distinctive, slightly bitter flavor, though I lack the precise vocabulary to describe its taste and aroma in detail.
+Lá mơ (Paederia lanuginosa) is a type of leaf with fine hairs, coming from a climbing plant - hence its other name, mơ lông (“hairy mơ”). There is little information about this plant on Wikipedia; it is simply noted as *“edible and used as a vegetable in Vietnam.”* In general, it has a distinctive, slightly bitter flavor, though I lack the precise vocabulary to describe its taste and aroma in detail.
 
-In Vietnam, lá mơ appears in two typical dishes: **thịt heo luộc** (boiled pork) and **trứng chiên** (omelette).
+As you read at the beginning of this post, lá mơ can be used like any other herb when served with bánh xèo, even though I had never seen it used this way until that moment. As far as I know, lá mơ appears in two typical dishes: **thịt heo luộc** (boiled pork) and **trứng chiên** (omelette).
 
 ***Boiled pork***
 
@@ -115,17 +118,13 @@ In Vietnam, lá mơ appears in two typical dishes: **thịt heo luộc** (boiled
   <img src="https://i.pinimg.com/736x/cc/fc/86/ccfc86613f4d9de75512c160a7f7fdb2.jpg" width="45%" />
 </p>
 <p align="center">
-  <em>Boiled pork served with lettuce and other herbs and ingredients (left) <br> vs. Boiled pork served with lá mơ only (right)</em>
+  <span>Boiled pork served with lettuce and other herbs and ingredients (left)</span> 
+  <em> vs. </em>
+  <span style="color: blue;">Boiled pork served with lá mơ only (right)</span>
 </p>
 
-According to a friend, her family often eats lá mơ alongside lettuce and a variety of other herbs with boiled pork. In my family, however, lá mơ is always served on its own with pork. We simply place a slice of pork on the leaf, wrap it up, dip it in fish sauce, and enjoy. The flavor is original — simple, yet deeply satisfying. 
 
-In addition, lá mơ is also considered an essential part of thịt chó (dog meat) — a protein-rich drinking dish traditionally favored by Vietnamese men, though it has become increasingly rare today due to ethical concerns.
-
-<div style="text-align: center;">
-  <img src="https://i.pinimg.com/736x/ac/d7/ba/acd7baf8e505e1a90037d148a8e71b7a.jpg" width="80%">
-  <p><em>Dog meat, often served with lá mơ or mắm tôm (Vietnamese fermented shrimp paste). A perfect dog meat dish is never complete without one of these two.</em></p>
-</div>
+According to a friend, her family often eats lá mơ alongside lettuce and a variety of other herbs with boiled pork. In my family, however, lá mơ is always served on its own with pork. We simply place a slice of pork on the leaf, wrap it up, dip it in fish sauce, and enjoy. The flavor is original - simple, yet deeply satisfying. 
 
 ***Omelette***
 
@@ -140,11 +139,20 @@ In addition, lá mơ is also considered an essential part of thịt chó (dog me
   </div>
   <div style="flex: 1 1 30%;">
     <img src="https://i.pinimg.com/736x/e5/5a/ae/e55aae2035a61b1a40b333fbbb415e6b.jpg" width="100%" />
-    <p>Vietnamese omelette with lá mơ</p>
+    <p style="color: blue;">Vietnamese omelette with lá mơ</p>
   </div>
 </div>
 
-In Vietnam, lá mơ is sometimes used in omelettes, among many other recipes such as spring onion omelette, tomato omelette, or simple pepper omelette. The flavor of an omelette with lá mơ is quite distinct from these, and more importantly, it is considered a traditional [herbal remedy](http://www.botanyvn.com/cnt.asp?param=news&newsid=751&lg=en) that supports and treats digestive issues, including dysentery. In short, it’s very good for your health (mama says).
+In Vietnam, lá mơ is sometimes used in omelettes, among many other omelette recipes such as spring onion omelette, tomato omelette, or simple pepper omelette. The flavor of an omelette with lá mơ is quite distinct from these, and more importantly, it is considered a traditional [herbal remedy](http://www.botanyvn.com/cnt.asp?param=news&newsid=751&lg=en) that supports and treats digestive issues, including dysentery. In short, it’s very good for your health (mama says).
+
+***Dog meat***
+
+In addition, lá mơ is also considered an essential part of thịt chó (dog meat) - a protein-rich *drinking dish* (món nhậu) traditionally favored by Vietnamese men, though it has become increasingly rare today due to ethical concerns.
+
+<div style="text-align: center;">
+  <img src="https://i.pinimg.com/736x/ac/d7/ba/acd7baf8e505e1a90037d148a8e71b7a.jpg" width="80%">
+  <p><em>Dog meat, often served with lá mơ or mắm tôm (Vietnamese fermented shrimp paste). A perfect dog meat dish is never complete without one of these two.</em></p>
+</div>
 
 
 
