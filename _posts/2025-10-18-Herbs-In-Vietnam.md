@@ -80,8 +80,7 @@ In Vietnam, trứng vịt lộn (balut) is always eaten with rau răm and muối
   </div>
 </div>
 
-
-Besides, **rau răm** is also used in *bánh tráng trộn*, meaning mixed rice paper or rice paper salad. This is a very popular Vietnamese street food among young people and students! It originated from Tây Ninh, the homeland of rice paper, and has since spread across the country and even abroad. It is considered a cultural symbol of Vietnamese street food. You should definitely try it! Personally, I think the pre-packaged dry versions of bánh tráng trộn are absolutely not good, but the ones mixed fresh with ingredients like mango, fried shallots, boiled quail eggs, đậu phộng rang and rau răm are incredibly delicious!
+Besides, **rau răm** is also used in *bánh tráng trộn* — literally “mixed rice paper” or “rice paper salad.” This is a very popular Vietnamese street food, especially among young people and students! It originated in Tây Ninh, the homeland of rice paper, and has since spread across the country and even abroad. Today, it is considered a cultural symbol of Vietnamese street food. You should definitely try it! Personally, I find the pre-packaged dry versions of bánh tráng trộn disappointing, but the freshly mixed ones - with ingredients like shredded green mango (xoài xanh bào sợi), fried shallots (hành phi), boiled quail eggs (trứng cút luộc), roasted tiny shrimp (tép rang), roasted peanuts (đậu phộng rang), various seasonings, and of course, rau răm — are absolutely delicious! One more thing: a truly good bánh tráng trộn also requires proper mixing technique, so that the rice paper is neither too hard nor too soft in the final dish.
 
 ### 2. Lá mơ
 
