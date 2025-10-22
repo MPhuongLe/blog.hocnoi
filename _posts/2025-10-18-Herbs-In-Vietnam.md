@@ -90,20 +90,34 @@ In Vietnam, trứng vịt lộn (balut) is always eaten with rau răm and muối
 
 Lá mơ (Paederia lanuginosa) is a type of leaf with fine hairs, coming from a climbing plant — hence its other name, mơ lông (“hairy mơ”). There is very little information about this plant on Wikipedia; it is simply noted as “edible and used as a vegetable in Vietnam.” In general, it has a distinctive, slightly bitter flavor, though I lack the precise vocabulary to describe its taste and aroma in detail.
 
-In Vietnam, lá mơ appears in two typical dishes: **trứng chiên** (fried eggs) and **thịt heo luộc** (boiled pork).
+In Vietnam, lá mơ appears in two typical dishes: **thịt heo luộc** (boiled pork) and **trứng chiên** (fried eggs).
 
+#### *Boiled pork*
+
+<p float="left" align="center">
+  <img src="https://helenrecipes.com/wp-content/uploads/2021/06/Screenshot-2021-06-14-110432.png" width="45%" />
+  <img src="https://i.pinimg.com/736x/cc/fc/86/ccfc86613f4d9de75512c160a7f7fdb2.jpg" width="45%" />
+</p>
 <p align="center">
-  <img src="https://img-global.cpcdn.com/steps/16ab2bcf08568531/320x256cq80/l%C6%B0%E1%BB%A1i-heo-lu%E1%BB%99c-mu%E1%BB%91i-cu%E1%BB%99n-la-m%C6%A1-recipe-step-4-photo.webp" width="50%">
-  <br>
-  <em>Boiled pork eaten with lá mơ and fish sauce.</em>
+  <em>Boiled pork served with lettuce and other herbs and ingredients (left) <br> vs. Boiled pork served with lá mơ only (right)</em>
 </p>
 
-According to a friend, her family often eats lá mơ alongside lettuce and a variety of other herbs with boiled pork. In my family, however, lá mơ is always served on its own. We simply place a slice of pork on the leaf, wrap it up, dip it in fish sauce, and enjoy. The flavor is original — simple, yet deeply satisfying.
 
-<div align="center">
-  <img src="https://cdn.tgdd.vn/2021/09/CookDishThumb/cach-lam-trung-chien-la-mo-thom-bui-la-mieng-doi-gio-cho-bua-thumb-620x620.jpg" width="50%">
-  <br>
-  <em>Beaten eggs fried with lá mơ.</em>
+According to a friend, her family often eats lá mơ alongside lettuce and a variety of other herbs with boiled pork. In my family, however, lá mơ is always served on its own with pork. We simply place a slice of pork on the leaf, wrap it up, dip it in fish sauce, and enjoy. The flavor is original — simple, yet deeply satisfying.
+
+<div style="display: flex; justify-content: center; gap: 10px; text-align: center; flex-wrap: wrap;">
+  <div style="flex: 1 1 30%;">
+    <img src="https://i.pinimg.com/736x/cd/5a/d0/cd5ad0d3408cedbfe1dfa3fc3fc4554d.jpg" width="100%" />
+    <p>Spring onion omelette</p>
+  </div>
+  <div style="flex: 1 1 13.3%;">
+    <img src="https://img-global.cpcdn.com/comments/1621efd3f1fdd363/1360x1360cq80/photo.webp" width="100%" />
+    <p>Tomato omelette</p>
+  </div>
+  <div style="flex: 1 1 30%;">
+    <img src="https://i.pinimg.com/736x/e5/5a/ae/e55aae2035a61b1a40b333fbbb415e6b.jpg" width="100%" />
+    <p>Vietnamese omelette with lá mơ</p>
+  </div>
 </div>
 
 In Vietnam, lá mơ is sometimes used in omelettes, among many other recipes such as spring onion omelette, tomato omelette, or simple pepper omelette. The flavor of an omelette with lá mơ is quite distinct from these, and more importantly, it is considered a traditional [herbal remedy](http://www.botanyvn.com/cnt.asp?param=news&newsid=751&lg=en) that supports and treats digestive issues, including dysentery. In short, it’s very good for your health (mama says).
