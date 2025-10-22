@@ -19,8 +19,7 @@ Inspired by lá mơ and lá lốt, I decided to write this blog to introduce som
 
 The order below is simply by my personal preference, not on popularity.
 
----
-### 1. Rau răm (Vietnamese coriander)
+## 1. Rau răm (Vietnamese coriander)
 
 <div align="center">
 <table>
@@ -87,7 +86,9 @@ There’s also a common folk belief in Vietnam that eating trứng vịt lộn h
 
 Besides, rau răm is also used in **bánh tráng trộn** — literally “mixed rice paper” or “rice paper salad.” This is a very popular Vietnamese *street food*, especially among the young and students! The dish originated in Tây Ninh, the homeland of rice paper, and has since spread across the country and even abroad. Today, it is considered a cultural symbol of Vietnamese street food. You should definitely try it! Personally, I find the pre-packaged dry versions of bánh tráng trộn disappointing, but the freshly mixed ones - with ingredients like shredded green mango (xoài xanh bào sợi), fried shallots (hành phi), boiled quail eggs (trứng cút luộc), roasted tiny shrimp (tép rang), roasted peanuts (đậu phộng rang), various seasonings, and of course, rau răm - are absolutely delicious! One more thing: a truly good bánh tráng trộn also requires proper mixing technique, so that the rice paper is neither too hard nor too soft in the final dish.
 
-### 2. Lá mơ (Paederia lanuginosa)
+
+
+## 2. Lá mơ (Paederia lanuginosa)
 
 <div align="center">
 <table>
