@@ -40,7 +40,9 @@ From what I've experienced, rau răm is not used in many dishes, but it pairs *p
   <img src="https://cdn.tienphong.vn/images/a6bf4f60924201126af6849ca45a398000817fa5dd6fb0c23f843852a5fadf4d57dfa0ab765ba782ddeb67e44748117b7f5bfa2d913557fb59bf007a392bd48c185a656eb5f32771d791f182dc4fffdf744ab608aca1e30d95d2fa6b1d402c06/chon-mua-trung-vit-lon-07112023091035-1579.jpg" width="50%">
 </p>
 
-*Trứng vịt lộn - always eaten with Rau răm and Muối tiêu (salt and pepper). It's a popular street snack that friends (both the young and the elder generation) enjoy together when hanging out. My mom sometimes buys it to eat at home because it's nutrious.*
+*Trứng vịt lộn - always eaten with Rau răm and Muối tiêu (salt and pepper). It’s a popular street snack that that friends (both the young and the elder generation) enjoy together when hanging out. My mom sometimes buys some to eat at home because it’s nutritious. There’s also a common folk belief that eating trứng vịt lộn helps “reverse bad luck” (xả xui), since the word lộn literally means “to turn over” or “to reverse” — symbolizing turning misfortune into good fortune. My younger sibling actually reminded me of this, since I usually don’t pay attention to spiritual or superstitious things like that.*
+
+
 
 
 
