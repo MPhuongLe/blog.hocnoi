@@ -13,9 +13,9 @@ Two days ago, I found a very special street vendor Bánh xèo while driving arou
 
 Sometimes I see other *unusual* types of veggies served with *Bánh xèo miền Tây*, such as: lá xoài non, lá cóc, lá bằng lăng, chòi mòi (you can see them [here](https://www.bachhoaxanh.com/kinh-nghiem-hay/kham-pha-cac-loai-rau-an-banh-xeo-mien-tay-ban-khong-the-bo-qua-1396792)). Vietnamese people don't usually eat them in daily meals - at least not in my hometown of Đắk Lắk or in Ho Chi Minh City. These vegetables do add a subtle difference to the bánh xèo, but honestly, it’s not very significant.
 
-But this street vendor has an *excellent* choice of herbs for her Bánh xèo: she used **Lá mơ** and **Lá lốt**. They are both very familiar to me - and to most Vietnamese - but we never eat them with Bánh xèo. I realized that the reason they stood out is their *unique aroma and taste*. They bring something new and unexpected to the familiar flavor of the dish.
+But this street vendor has an *excellent* choice of herbs for her Bánh xèo: she used **lá mơ** and **lá lốt**. They are both very familiar to me - and to most Vietnamese - but we never eat them with Bánh xèo. I realized that the reason they stood out is their *unique aroma and taste*. They bring something new and unexpected to the familiar flavor of the dish.
 
-Inspired by Lá mơ and Lá lốt, I decided to write this blog to introduce some typical herbs used in Vietnamese cuisine. Vietnamese people use *a lot* of herbs - too many for most young people to remember! :) But they are an indispensable part and add greatly to the soul of our cuisine. 
+Inspired by lá mơ and lá lốt, I decided to write this blog to introduce some typical herbs used in Vietnamese cuisine. We people use *a lot* of herbs - too many for most young people to remember! :) But they are an indispensable part and add greatly to the soul of our cuisine. 
 
 The order below is simply by my personal preference, not on popularity.
 
