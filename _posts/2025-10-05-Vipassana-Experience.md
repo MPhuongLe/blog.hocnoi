@@ -3,9 +3,11 @@ title: "Vipassana Experience"
 date: 2025-10-05
 ---
 
-Today I completed my 10-day vipassana course! To begin, *Vipassana is wonderful*. The most profound experience I've ever had in my life.
+Today I completed my 10-day Vipassana course!
 
-Now I will tell you everything I can remember.
+TL;DR: Vipassana is wonderful. It’s the most profound experience I’ve ever had. The course is completely free, and I highly recommend trying it whenever you have 11 days to dedicate.
+
+Now, I’ll share everything I can remember from the experience.
 
 ## Day -1
 
