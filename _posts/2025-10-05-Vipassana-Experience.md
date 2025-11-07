@@ -236,4 +236,4 @@ This night, all students were gathered around to watch movie. It was a documenta
 
 We got up, go to the meditation hall to practice in 2 hours (I'm not sure). Then, we were assigned cleaning tasks. I and Tú Nhi took the left one of cleaning the toilets. We did it too thoroughly that we were the last to finish (with the manager's help), eat breakfast (we shared a vegetarian Banh mi), and leave. Before leaving, we went to the manager room to donate. 500k for both of us. There we met the woman who waked me up in a morning. That t.ime I didn't like her much and I guessed she was a very Fastidious. But now talking to her I saw her to be a very charming and nice woman. She shared us a lot of stuff about meditation. 
 
-(add picture here - the notes)
+![Note from the woman](https://i.pinimg.com/736x/25/5a/2b/255a2bf23220c8607d164564d54e1900.jpg)
