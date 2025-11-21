@@ -28,6 +28,20 @@ I had my "lunch": sugar cane with the special salt mixture! It tasted delicious!
 
 It's now 1:20PM, and I'm still quite hungry... The temptation for food is overwhelming T.T
 
+Tonight, I hung out but felt quite apathetic. I didn’t have much energy and ended up going home early. At one moment, I even thought about quitting this project because everything around me looked so delicious, and I was craving food so badly. I also felt that maybe this isn’t the best time for such a project — my graduation day is coming, and I really need to be healthy for that!
+
+Anyway, those were just excuses, and I brushed them out of my mind.
+
+> Observation: dizzy, tired, hungry, tempting, great sleep
+
+### Day 2
+
+Tu Nhi said that the expected duration of the project is 10 days. But I might only have 9 days because I’ll definitely break it on my graduation day.
+
+I also realized that sugar cane goes soooo well with pepper salt. Yesterday, after coming home, I ate three more chunks of sugar cane - which I know I shouldn’t have done. But I really wanted to eat something, and I’ve never been good at stopping myself. Still, eating sugar cane alone just didn’t taste the same. Without the salt mixture, it was much less satisfying.
+
+Also I slept very well last night. Very, very well. Now it's morning, and I feel ok, not much hunger or tire. I hope the worst period is already over! (Thay Phuoc said that on day 2 he felt extremely tired, but after that everything became much easier. I'm hoping my body is different and that my difficult phase had happened on day 1 instead).
+
+> Observation: fine morning, mild diarrhea (very little)
+
 *(To be updated...)*
-
-
