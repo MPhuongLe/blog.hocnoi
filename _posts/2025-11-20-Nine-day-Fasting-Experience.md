@@ -42,6 +42,14 @@ I also realized that sugar cane goes soooo well with pepper salt. Yesterday, aft
 
 Also I slept very well last night. Very, very well. Now it's morning, and I feel ok, not much hunger or tire. I hope the worst period is already over! (Thay Phuoc said that on day 2 he felt extremely tired, but after that everything became much easier. I'm hoping my body is different and that my difficult phase had happened on day 1 instead).
 
-> Observation: fine morning, mild diarrhea (very little)
+> Observation: fine morning, mild diarrhea (twice, but very little)
+
+Besides, I felt pain inside my mouth and my teeth were sensitive because I ate too much sugarcane.
+
+This day, I didn't feel tired, although I was out from 1PM to 9PM and walked about 3 km. 
+
+### Day 3
+
+I slept well. When I woke up, my body was covered in sweat, and when I stood up, I could clearly feel that my arms and legs were very weak — mỏi and slightly shaky. I guess my body is burning my protein for energy.
 
 *(To be updated...)*
