@@ -50,6 +50,62 @@ This day, I didn't feel tired, although I was out from 1PM to 9PM and walked abo
 
 ### Day 3
 
-I slept well. When I woke up, my body was covered in sweat, and when I stood up, I could clearly feel that my arms and legs were very weak — mỏi and slightly shaky. I guess my body is burning my protein for energy.
+I slept well. When I woke up, my body was covered in sweat, and when I stood up, I could clearly felt that my arms and legs were very weak (mỏi) and slightly shaky. I guess my body was starting to break down protein for energy.
 
-*(To be updated...)*
+After trying for a while to lift my arms and type something, I decided to go back to bed because my muscles were too weak to do anything, and I also felt very cold. I wasn't sure why I felt cold, but thinking back, maybe it was because it had rained a little. I grabbed a book, thinking I would read in bed, but once I lay down, I felt too exhausted and decided to rest for a moment.
+
+Tu Nhi came in and suggested that I meditate, and I agreed. But in the lying position, it was hard to stay alert, and I drifted into a half-sleep, half-awake state. Eventually, I decided to take a nap. I still felt cold, so I pulled the blanket over myself, even though my body was already sweaty.
+
+Today Tu Nhi went to office, so I had to stay home alone. Before leaving, she woke me up and told me to ask Tan to come over and keep an eye on me, and I agreed. Tan was celebrating one of his friend's graduation, so he said he would come after the celebration, but it wouldn't take too long.
+
+It was 10AM, and I decided to have lunch. I went out to the balcony room, but even that short walk felt exhausting. I decided to eat all the remaining sugar cane - about twice the usual amount - for more energy and, honestly, for a bit of dopamine too. 
+
+I ate inside on the bed, which was unsual because I normally prefer eating in the balcony room. After eating, I got back under the blanket and watched some videos on facebook. About 15 minutes later, Tan showed up. He cleaned my sugar cane scraps and brought me some water. Then he had his own lunch, which he bought earlier. 
+
+I was lying on the bed and talking to him. He told me I should sleep more. After he finished his lunch, he encouraged me to go outside. I agreed, because I also felt that staying in a dark, enclosed space for too long would only make me feel worse and mentally dull. But I wasn't sure whether I had enough energy to do anything other than sit on the back of his motorbike.
+
+I forgot to mention - today was his birthday, but since I couldn't eat anything, almost 80% of the usual options were off the table. We decided to go to Twin Lakes - the secret, gorgeous landscape we had discovered before - to explore it a bit more.
+
+I felt much better once I went outside! The national university area was so peaceful and fresh, with sunslight and so many trees, which boosted my energy very quickly. Then we passed Quốc lộ 1K, which was full of huge container trucks, heavy traffic, a lot of dust, and very few trees. After all that, we finally arrived at the lake. 
+
+Getting there required quite a bit of hiking. Considering how sick and weak I had felt earlier - when I couldn't even imagine walking - it was surprising that we were now hiking on rocky, uneven terrain to reach the lake surface! It was tiring, but I actually did it. We explored the path leading down to the water’s surface, and the water was so clean and transparent.
+
+It was cloudy and dark even at noon, so the lake wasn't as stunning as the last time we saw it on a really sunny day, but it was still beautiful.
+
+On the way back home, we went to buy more sugar cane because I had run out (Tu Nhi still had a half of her bag, since she only ate 4 chunks per meal, while I usually had 6 and often ate extra!). 
+
+I was at home. After some time - I can't quite remember how long - I felt a constant pain at the base of my tenth ribs on both sides. I guessed it could be caused either by overly strenuous movement or hunger, but I couldn't tell which. I decided to eat dinner, hoping the pain would go away.
+
+![human bones](https://cdn.britannica.com/26/72226-035-259F73CD/Major-bones-human-skeleton.jpg)
+
+I ate 7 chunks. But after dinner, the pain was still there. Tan told me to ask chatGPT about it. Instead of mentioning the pain directly, I first explained my fasting project - and its response scared me a lot. It said that fasting for 10 days was very dangerous and could cause not only immediate risks but also long‑term side effects. It also said that if I insisted on continuing, I should be extremely careful when eating again: "Eat very little, choose light foods, avoid fat, simple sugars, eggs, meat, etc. Start with thin porridge."
+
+Before that, I had almost forgotten how I should refeed properly, and ChatGPT made me realize that my ignorance and lack of knowledge could seriously harm me. That was the moment I started thinking seriously about stopping. I don't think the method itself is bad - it wasn't the technique, it was me. I still believe in its potential and think I might try it again one day, but not now, when I know so little about it and it could damage my health.
+
+I could ask Thầy Phước for more detailed guidance when I have the chance, or wait for Tu Nhi's experience if she continues and eventually achieves the benefits that Thầy Phước talked about. 
+
+I took a small amount of leftover cooked brown rice from the fridge to make some porridge and ate it. Since it was my first meal after a long fast, both Tân and ChatGPT recommended eating very little. I had five spoonfuls. After eating, I felt the pain disappear. It could be a coincidence - I'm not really sure.
+
+> Confession: After eating again, I didn't feel any strange reactions from my body. So when I saw Tân eating a snack, I couldn't resist the temptation to have some. I knew it wasn't healthy, but I had been craving food sooo much these days! It wasn't even particularly delicious, yet I couldn't stop enjoying it and wanting more.
+
+![Snack bánh gạo](https://shop.annam-gourmet.com/pub/media/catalog/product/cache/ee0af4cad0f3673c5271df64bd520339/b/_/b__nh_g___o_8a2f.jpg)
+
+Confession 2: After that, Tan suggested we go out to get some fresh air, and we rode around the roads. I noticed a grocery store I had never been to, and asked Tan to stop so I could take a look. And I quite liked it - it sold many varieties of nice goods. And... Tan offered to buy me a snack (just because he saw how much I really wanted it!!). I asked Tan if I could eat one bite of it, but I ended up eating quite a lot. I asked Tan why he bought it for me and let me eat it, since he was always worried about my fasting and refeeding. He said it was because he saw me eating again and hadn't had any strange reactions so far.  
+
+![Snack mực rong biển](https://www.lottemart.vn/media/catalog/product/cache/0x0/8/8/8859470510081.jpg.webp)
+
+To be honest, this snack was as crispy as I had hoped, but it was too sweet instead of salty. So we both kinda disliked it. Not recommended!
+
+It also made me realize that fast food isn’t really tasty at all. I had sometimes wanted to buy some, but now I saw that I did't actually enjoy it that much. I'd much rather buy fresh or freshly cooked food, which is very cheap and common in Vietnam. Vietnam is truly a paradise for food lovers!
+
+### Day 4
+
+I started the day like any normal day before the fasting project. Maybe my body now had some external source of energy and was no longer consuming itself. 
+
+I planned to continue eating thin porriage for lunch, and I thought I would stick to it for the whole day before adding some more easy-to-digest foods to my diet tomorrow. So, *my project has now ended*, although I hope to try it again someday (I'll update this blog if that happens!).
+
+However, I am still maintaining my daily fasting routine from 8 PM to 10 AM (skipping breakfast).
+
+Thank you for reading!
+
+P.S. Even though I couldn't complete this project, I'm very proud of the effort I put in these past days, and I learned a lot. It taught me to treasure food more! In the past, I often threw away what I didn’t want to eat, and many times when I was busy or too lazy to cook, I thought it would be nice if we didn’t have to eat to stay healthy. I also gained a better understanding of my body - how it eliminates what we consume and how it uses the nutrients we take in. On top of that, I learned about sugar cane and where to buy it - which turned out to be harder than I expected!
