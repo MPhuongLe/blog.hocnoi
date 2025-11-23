@@ -96,11 +96,25 @@ I took a small amount of leftover cooked brown rice from the fridge to make some
 
 > Confession: After eating again, I didn't feel any strange reactions from my body. So when I saw Tân eating a snack, I couldn't resist the temptation to have some. I knew it wasn't healthy, but I had been craving food sooo much these days! It wasn't even particularly delicious, yet I couldn't stop enjoying it and wanting more.
 
-![Snack bánh gạo](https://shop.annam-gourmet.com/pub/media/catalog/product/cache/ee0af4cad0f3673c5271df64bd520339/b/_/b__nh_g___o_8a2f.jpg)
+<figure style="width:50%;">
+  <img src="https://shop.annam-gourmet.com/pub/media/catalog/product/cache/ee0af4cad0f3673c5271df64bd520339/b/_/b__nh_g___o_8a2f.jpg" 
+       alt="Snack bánh gạo mè dừa giòn" 
+       style="width:100%; height:auto;">
+  <figcaption style="text-align:center; font-style:italic; margin-top:6px;">
+    The (first) snack I had when refeeding: bánh gạo mè dừa giòn
+  </figcaption>
+</figure>
 
 Confession 2: After that, Tan suggested we go out to get some fresh air, and we rode around the roads. I noticed a grocery store I had never been to, and asked Tan to stop so I could take a look. And I quite liked it - it sold many varieties of nice goods. And... Tan offered to buy me a snack (just because he saw how much I really wanted it!!). I asked Tan if I could eat one bite of it, but I ended up eating quite a lot. I asked Tan why he bought it for me and let me eat it, since he was always worried about my fasting and refeeding. He said it was because he saw me eating again and hadn't had any strange reactions so far.  
 
-![Snack mực rong biển](https://www.lottemart.vn/media/catalog/product/cache/0x0/8/8/8859470510081.jpg.webp)
+<figure style="width:50%;">
+  <img src="https://www.lottemart.vn/media/catalog/product/cache/0x0/8/8/8859470510081.jpg.webp"
+       alt="Snack mực rong biển"
+       style="width:100%; height:auto;">
+  <figcaption style="text-align:center; font-style:italic; margin-top:6px;">
+    The second snack I had – snack mực rong biển
+  </figcaption>
+</figure>
 
 To be honest, this snack was as crispy as I had hoped, but it was too sweet instead of salty. So we both kinda disliked it. Not recommended!
 
