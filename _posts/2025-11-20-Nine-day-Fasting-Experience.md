@@ -9,7 +9,7 @@ He then shared with me the other of his two magical experiences ever - besides v
 During this fasting series, one does not eat anything except sugar cane, flavored with special pepper-salt mix. Each meal consists of a small bowl of sugar cane chunks, dipped into a combination of salt, pepper or chilli, and lime juice. The meal ends up by chewing on and swallowing  the squeezed lime rind. Water is allowed.
 
 ### Day 0
-On day 0, I ate lunch as usual (I never break fasting before 10AM). From the afternoon onward, I didn't eat anything. I drank a tea called "Phan tả diệp", which is meant to clear the digestive system (I guess it works like laxative - thuốc xổ). My first sugar cane meal was scheduled for the next lunch.
+On day 0, I ate lunch as usual. From the afternoon onward, I didn't eat anything. I only drank a tea called "Phan tả diệp" for dinner, which is meant to clear the digestive system (I guess it works like laxative - thuốc xổ). My first sugar cane meal was scheduled for the next lunch.
 
 ![Lá trà Phan tả diệp](https://cdn.nhathuoclongchau.com.vn/unsafe/800x0/tra_phan_ta_diep_va_nhung_loi_ich_suc_khoe_it_ai_ngo_den_4_2c4a04692f.jpg)
 
