@@ -92,7 +92,7 @@ Also, I suggested that we go eat bánh xèo - I wanted Tân to enjoy something o
 <p style="text-align: center;">
   <img src="https://i.pinimg.com/736x/c6/62/44/c66244a23e552afbd62d9ac4b647bf28.jpg" style="width:80%;">
   <br>
-  <em>Tiệm bánh xèo miền Tây rau rừng 30K (đường số 8) - Miền Tây-style Vietnamese bánh xèo with wild herbs – only 30.000 VND (Street No. 8) </em>
+  <em>Tiệm bánh xèo miền Tây rau rừng 30K (đường số 8) <br> Miền Tây-style Vietnamese bánh xèo with wild herbs – only 30.000 VND (Street No. 8) </em>
 </p>
 
 The bánh xèo looked nice to me, and it had more toppings than the other low-quality, cheap ones inside the national university area. But Tân said it was… okay. Eight out of ten, rated by Tân.
