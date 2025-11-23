@@ -77,6 +77,8 @@ I was lying on the bed and talking to him. He told me I should sleep more. After
 
 I forgot to mention - today was his birthday, but since I couldn't eat anything, almost 80% of the usual options were off the table. We decided to go to Twin Lakes - the secret, gorgeous landscape we had discovered before - to explore it a bit more.
 
+![Twin Lakes](https://lh3.googleusercontent.com/gps-cs-s/AG0ilSwkD95SYiS2ZIx0TvbaKAN30OCpn5AVqS8TdAGf9Kw1CPAxB5CCRiPMGC-rQTXPayIWHie2EZ-OajynoMJysae2N4v65gjq_PuRlBiPVP9W7J0udpxICRH3npOZ9SmY0vT5enePGSZ6Og=s1360-w1360-h1020-rw)
+
 I felt much better once I went outside! The national university area was so peaceful and fresh, with sunslight and so many trees, which boosted my energy very quickly. Then we passed Quốc lộ 1K, which was full of huge container trucks, heavy traffic, a lot of dust, and very few trees. After all that, we finally arrived at the lake. 
 
 Getting there required quite a bit of hiking. Considering how sick and weak I had felt earlier - when I couldn't even imagine walking - it was surprising that we were now hiking on rocky, uneven terrain to reach the lake surface! It was tiring, but I actually did it. We explored the path leading down to the water’s surface, and the water was so clean and transparent.
@@ -125,6 +127,8 @@ Confession 2: After that, Tan suggested we go out to get some fresh air, and we 
 To be honest, this snack was as crispy as I had hoped, but it was too sweet instead of salty. So we both kinda disliked it. Not recommended!
 
 It also made me realize that fast food isn’t really tasty at all. I had sometimes wanted to buy some, but now I saw that I did't actually enjoy it that much. I'd much rather buy fresh or freshly cooked food, which is very cheap and common in Vietnam. Vietnam is truly a paradise for food lovers!
+
+![Vietnamese cuisine](https://scontent.fsgn21-1.fna.fbcdn.net/v/t39.30808-6/486777277_9470323693017347_2345281198925072496_n.jpg?_nc_cat=110&ccb=1-7&_nc_sid=833d8c&_nc_eui2=AeFs7IGdk6aS8imLZavitqI5ATG8J5YCtb4BMbwnlgK1vtTdaaV-eeXOIKbUBkzgeIQCXYlTppspARwGWZcRBwDB&_nc_ohc=tJd4V63RHUsQ7kNvwHKSjcw&_nc_oc=Adk-WVIF3R1Y7qrK1sl7iVEjBkRb3L0m4F-6tJ_KKOai8jGEXxjK4xcQg0tNUzLlI1k&_nc_zt=23&_nc_ht=scontent.fsgn21-1.fna&_nc_gid=cRMdUHOt8AD6hI1TTbkdTQ&oh=00_AfhiEntlDW8dfh8gSQBXQxszcivdoseb1L_9luX-Ei1Z4g&oe=69285B5E)
 
 ### Day 4
 
