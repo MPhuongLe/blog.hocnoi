@@ -36,7 +36,7 @@ Today is Vietnam Teacher's day, so I went to the lab to work, so that Hoang and 
 I had my "lunch": sugar cane with the special salt mixture! It tasted delicious! One tip: don't let the squeezed lime be the last thing you eat - it's extremely sour and bitter, and the unpleasant taste lingers! Better to save one chunk of sugar cane to eat afterward!
 
 <p style="text-align: center;">
-  <img src="https://i.pinimg.com/736x/41/17/97/411797dd872b618ac213e69aa1150c9e.jpg" style="width:70%;">
+  <img src="https://i.pinimg.com/736x/e3/8c/0a/e38c0ac29269912d51edc69e63f9269e.jpg" style="width:100%;">
   <br>
   <em>A typical meal of my fasting diet</em>
 </p>
