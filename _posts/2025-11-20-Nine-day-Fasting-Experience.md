@@ -4,7 +4,7 @@ date: 2025-11-20
 ---
 When I came back to Stone Hill Farm to for Miss Thu and Mr Do's wedding, I had the chance to talk to Thay Phuoc again. I told him about my and Tu Nhi's vipassana experience - which we pursued after being inspired by him. 
 
-He then shared with me the other of his two magical experiences ever - besides vipassana - ***fasting***. He tried it many years ago, learning it from a friend at his Stone Hill Farm. I'm not sure how long the full practice should last, but his ended after 8 or 10 days because of an unavoidable business meal or something like that.
+He then shared with me the other of his two magical experiences ever - besides vipassana - ***fasting***. He tried it many years ago, learning it from a friend at his Stone Hill Farm. I'm not sure how long the full practice should last, but his ended after 8 or 9 days because of an unavoidable business meal or something like that.
 
 During this fasting series, one does not eat anything except sugar cane, flavored with special pepper-salt mix. Each meal consists of a small bowl of sugar cane chunks, dipped into a combination of salt, pepper or chilli, and lime juice. The meal ends up by chewing on and swallowing  the squeezed lime rind. Water is allowed.
 
