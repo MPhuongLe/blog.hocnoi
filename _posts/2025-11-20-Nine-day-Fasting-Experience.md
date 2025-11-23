@@ -11,12 +11,16 @@ During this fasting series, one does not eat anything except sugar cane, flavore
 ### Day 0
 On day 0, I ate lunch as usual. From the afternoon onward, I didn't eat anything. I only drank a tea called "Phan tả diệp" for dinner, which is meant to clear the digestive system (I guess it works like laxative - thuốc xổ). My first sugar cane meal was scheduled for the next lunch.
 
-![Lá trà Phan tả diệp](https://cdn.nhathuoclongchau.com.vn/unsafe/800x0/tra_phan_ta_diep_va_nhung_loi_ich_suc_khoe_it_ai_ngo_den_4_2c4a04692f.jpg)
+<p style="text-align: center;">
+  <img src="https://cdn.nhathuoclongchau.com.vn/unsafe/800x0/tra_phan_ta_diep_va_nhung_loi_ich_suc_khoe_it_ai_ngo_den_4_2c4a04692f.jpg" style="width:100%;">
+  <br>
+  <em>*Phan tả diệp* tea </em>
+</p>
 
 Late in the afternoon, Tu Nhi and I rode my motorbike to find sugar cane. We discovered that there were two very different types of sugar cane. The first one is the common one sold for juice (nước mía). However, it is super tough and the seller laughed at us when we asked to buy some, and they asserted that we would break our teeth trying to chew it. They suggested we look for the second type: *purple* sugar cane. However, it was very hard to find, almost impossible, probably because it's so uncommon. Now I understand the gap between how much people drink sugar cane and how much they actually eat it. It took us a lot of effort to track down a tricycle vendor (xe ba gác) who moves around and only stops at certain crowded spots - particularly Nguyễn Văn Lịch Primary School on 6th street, about 2 km from UEL university. We couldn't even find it at the traditional market!
 
 <p style="text-align: center;">
-  <img src="https://sohanews.sohacdn.com/160588918557773824/2022/3/11/photo-1-16470162862321712894939.jpeg" style="width:80%;">
+  <img src="https://sohanews.sohacdn.com/160588918557773824/2022/3/11/photo-1-16470162862321712894939.jpeg" style="width:100%;">
   <br>
   <em>Mía tím (purple sugar cane) và mía xanh (green sugar cane - for juice)</em>
 </p>
@@ -32,9 +36,9 @@ Today is Vietnam Teacher's day, so I went to the lab to work, so that Hoang and 
 I had my "lunch": sugar cane with the special salt mixture! It tasted delicious! One tip: don't let the squeezed lime be the last thing you eat - it's extremely sour and bitter, and the unpleasant taste lingers! Better to save one chunk of sugar cane to eat afterward!
 
 <p style="text-align: center;">
-  <img src="https://i.pinimg.com/736x/41/17/97/411797dd872b618ac213e69aa1150c9e.jpg" style="width:40%;">
+  <img src="https://i.pinimg.com/736x/41/17/97/411797dd872b618ac213e69aa1150c9e.jpg" style="width:70%;">
   <br>
-  <em>A typical meal on fasting diet</em>
+  <em>A typical meal of my fasting diet</em>
 </p>
 
 It's now 1:20PM, and I'm still quite hungry... The temptation for food is overwhelming T.T
@@ -77,7 +81,11 @@ I was lying on the bed and talking to him. He told me I should sleep more. After
 
 I forgot to mention - today was his birthday, but since I couldn't eat anything, almost 80% of the usual options were off the table. We decided to go to Twin Lakes - the secret, gorgeous landscape we had discovered before - to explore it a bit more.
 
-![Twin Lakes](https://lh3.googleusercontent.com/gps-cs-s/AG0ilSwkD95SYiS2ZIx0TvbaKAN30OCpn5AVqS8TdAGf9Kw1CPAxB5CCRiPMGC-rQTXPayIWHie2EZ-OajynoMJysae2N4v65gjq_PuRlBiPVP9W7J0udpxICRH3npOZ9SmY0vT5enePGSZ6Og=s1360-w1360-h1020-rw)
+<p style="text-align: center;">
+  <img src="https://lh3.googleusercontent.com/gps-cs-s/AG0ilSwkD95SYiS2ZIx0TvbaKAN30OCpn5AVqS8TdAGf9Kw1CPAxB5CCRiPMGC-rQTXPayIWHie2EZ-OajynoMJysae2N4v65gjq_PuRlBiPVP9W7J0udpxICRH3npOZ9SmY0vT5enePGSZ6Og=s1360-w1360-h1020-rw" style="width:80%;">
+  <br>
+  <em>A corner of Twin Lakes</em>
+</p>
 
 I felt much better once I went outside! The national university area was so peaceful and fresh, with sunslight and so many trees, which boosted my energy very quickly. Then we passed Quốc lộ 1K, which was full of huge container trucks, heavy traffic, a lot of dust, and very few trees. After all that, we finally arrived at the lake. 
 
@@ -90,7 +98,7 @@ On the way back home, we went to buy more sugar cane because I had run out (Tu N
 Also, I suggested that we go eat bánh xèo - I wanted Tân to enjoy something on his birthday, even though he said every day felt like his birthday because he enjoyed life (and also because he received my good-night wish every night). I chose a diner I had noticed a few days ago because it looked quite nice. It wasn’t spacious, but it was neat and clean.
 
 <p style="text-align: center;">
-  <img src="https://i.pinimg.com/736x/c6/62/44/c66244a23e552afbd62d9ac4b647bf28.jpg" style="width:80%;">
+  <img src="https://i.pinimg.com/736x/c6/62/44/c66244a23e552afbd62d9ac4b647bf28.jpg" style="width:100%;">
   <br>
   <em>Tiệm bánh xèo miền Tây rau rừng 30K (đường số 8) <br> Miền Tây-style Vietnamese bánh xèo with wild herbs – only 30.000 VND (Street No. 8) </em>
 </p>
@@ -99,7 +107,11 @@ The bánh xèo looked nice to me, and it had more toppings than the other low-qu
 
 I was at home. After some time - I can't quite remember how long - I felt a constant pain at the base of my tenth ribs on both sides. I guessed it could be caused either by overly strenuous movement or hunger, but I couldn't tell which. I decided to eat dinner, hoping the pain would go away.
 
-![human bones](https://cdn.britannica.com/26/72226-035-259F73CD/Major-bones-human-skeleton.jpg)
+<p style="text-align: center;">
+  <img src="https://cdn.britannica.com/26/72226-035-259F73CD/Major-bones-human-skeleton.jpg" style="width:80%;">
+  <br>
+  <em>Human skeletal system</em>
+</p>
 
 I ate 7 chunks. But after dinner, the pain was still there. Tan told me to ask chatGPT about it. Instead of mentioning the pain directly, I first explained my fasting project - and its response scared me a lot. It said that fasting for 10 days was very dangerous and could cause not only immediate risks but also long‑term side effects. It also said that if I insisted on continuing, I should be extremely careful when eating again: "Eat very little, choose light foods, avoid fat, simple sugars, eggs, meat, etc. Start with thin porridge."
 
@@ -114,14 +126,14 @@ I took a small amount of leftover cooked brown rice from the fridge to make some
 <p style="text-align: center;">
   <img src="https://shop.annam-gourmet.com/pub/media/catalog/product/cache/ee0af4cad0f3673c5271df64bd520339/b/_/b__nh_g___o_8a2f.jpg" style="width:70%;">
   <br>
-  <em>The (first) snack I had when refeeding: bánh gạo mè dừa giòn (crispy sesame–coconut rice crackers)</em>
+  <em>The (first) snack I had when refeeding: <br> Bánh gạo mè dừa giòn (crispy sesame–coconut rice crackers)</em>
 </p>
 
 Confession 2: After that, Tan suggested we go out to get some fresh air, and we rode around the roads. I noticed a grocery store I had never been to, and asked Tan to stop so I could take a look. And I quite liked it - it sold many varieties of nice goods. And... Tan offered to buy me a snack (just because he saw how much I really wanted it!!). I asked Tan if I could eat one bite of it, but I ended up eating quite a lot. I asked Tan why he bought it for me and let me eat it, since he was always worried about my fasting and refeeding. He said it was because he saw me eating again and hadn't had any strange reactions so far.  
 <p style="text-align: center;">
   <img src="https://www.lottemart.vn/media/catalog/product/cache/0x0/8/8/8859470510081.jpg.webp" style="width:70%;">
   <br>
-  <em> The second snack I had – snack mực rong biển (Seaweed squid snack)</em>
+  <em> The second snack I had: <br> Snack mực rong biển (Seaweed squid snack)</em>
 </p>
 
 To be honest, this snack was as crispy as I had hoped, but it was too sweet instead of salty. So we both kinda disliked it. Not recommended!
