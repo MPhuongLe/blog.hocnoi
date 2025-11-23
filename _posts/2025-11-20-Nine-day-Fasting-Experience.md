@@ -110,7 +110,7 @@ I was at home. After some time - I can't quite remember how long - I felt a cons
 <p style="text-align: center;">
   <img src="https://cdn.britannica.com/26/72226-035-259F73CD/Major-bones-human-skeleton.jpg" style="width:80%;">
   <br>
-  <em>Human skeletal system</em>
+  <em>Find my *pain point* on this map - the 10th ribs</em>
 </p>
 
 I ate 7 chunks. But after dinner, the pain was still there. Tan told me to ask chatGPT about it. Instead of mentioning the pain directly, I first explained my fasting project - and its response scared me a lot. It said that fasting for 10 days was very dangerous and could cause not only immediate risks but also long‑term side effects. It also said that if I insisted on continuing, I should be extremely careful when eating again: "Eat very little, choose light foods, avoid fat, simple sugars, eggs, meat, etc. Start with thin porridge."
