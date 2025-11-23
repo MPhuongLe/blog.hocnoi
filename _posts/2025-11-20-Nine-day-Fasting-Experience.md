@@ -82,7 +82,7 @@ I was lying on the bed and talking to him. He told me I should sleep more. After
 I forgot to mention - today was his birthday, but since I couldn't eat anything, almost 80% of the usual options were off the table. We decided to go to Twin Lakes - the secret, gorgeous landscape we had discovered before - to explore it a bit more.
 
 <p style="text-align: center;">
-  <img src="https://lh3.googleusercontent.com/gps-cs-s/AG0ilSwkD95SYiS2ZIx0TvbaKAN30OCpn5AVqS8TdAGf9Kw1CPAxB5CCRiPMGC-rQTXPayIWHie2EZ-OajynoMJysae2N4v65gjq_PuRlBiPVP9W7J0udpxICRH3npOZ9SmY0vT5enePGSZ6Og=s1360-w1360-h1020-rw" style="width:80%;">
+  <img src="https://lh3.googleusercontent.com/gps-cs-s/AG0ilSwkD95SYiS2ZIx0TvbaKAN30OCpn5AVqS8TdAGf9Kw1CPAxB5CCRiPMGC-rQTXPayIWHie2EZ-OajynoMJysae2N4v65gjq_PuRlBiPVP9W7J0udpxICRH3npOZ9SmY0vT5enePGSZ6Og=s1360-w1360-h1020-rw" style="width:100%;">
   <br>
   <em>A corner of Twin Lakes</em>
 </p>
