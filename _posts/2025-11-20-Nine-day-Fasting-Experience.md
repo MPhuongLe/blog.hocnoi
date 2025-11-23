@@ -15,7 +15,12 @@ On day 0, I ate lunch as usual. From the afternoon onward, I didn't eat anything
 
 Late in the afternoon, Tu Nhi and I rode my motorbike to find sugar cane. We discovered that there were two very different types of sugar cane. The first one is the common one sold for juice (nước mía). However, it is super tough and the seller laughed at us when we asked to buy some, and they asserted that we would break our teeth trying to chew it. They suggested we look for the second type: *purple* sugar cane. However, it was very hard to find, almost impossible, probably because it's so uncommon. Now I understand the gap between how much people drink sugar cane and how much they actually eat it. It took us a lot of effort to track down a tricycle vendor (xe ba gác) who moves around and only stops at certain crowded spots - particularly Nguyễn Văn Lịch Primary School on 6th street, about 2 km from UEL university. We couldn't even find it at the traditional market!
 
-![Mía tím và mía xanh](https://sohanews.sohacdn.com/160588918557773824/2022/3/11/photo-1-16470162862321712894939.jpeg)
+<p style="text-align: center;">
+  <img src="https://sohanews.sohacdn.com/160588918557773824/2022/3/11/photo-1-16470162862321712894939.jpeg" style="width:80%;">
+  <br>
+  <em>Mía tím (purple sugar cane) và mía xanh (green sugar cane - for juice)</em>
+</p>
+
 
 According to the tea bag manual, the tea should take effect after 4-5 hours according to one's constitution. The tea itself tasted mild, similar to many of my grandma's tea - easy to drink, not bitter or harsh. After a while, I felt my hunger better. After a few hours I started feeling some discomfort - like repeated, sharp, sudden pains of diarrhea, though quick and not severe. About 5 hours after drinking it, when asleep, I felt a strong urge to go to the bathroom - the laxative had kicked in! 
 
@@ -26,7 +31,11 @@ Today is Vietnam Teacher's day, so I went to the lab to work, so that Hoang and 
 
 I had my "lunch": sugar cane with the special salt mixture! It tasted delicious! One tip: don't let the squeezed lime be the last thing you eat - it's extremely sour and bitter, and the unpleasant taste lingers! Better to save one chunk of sugar cane to eat afterward!
 
-![a meal on fasting diet](https://i.pinimg.com/736x/41/17/97/411797dd872b618ac213e69aa1150c9e.jpg)
+<p style="text-align: center;">
+  <img src="https://i.pinimg.com/736x/41/17/97/411797dd872b618ac213e69aa1150c9e.jpg" style="width:40%;">
+  <br>
+  <em>A typical meal on fasting diet</em>
+</p>
 
 It's now 1:20PM, and I'm still quite hungry... The temptation for food is overwhelming T.T
 
@@ -78,7 +87,11 @@ On the way back home, we went to buy more sugar cane because I had run out (Tu N
 
 Also, I suggested that we go eat bánh xèo - I wanted Tân to enjoy something on his birthday, even though he said every day felt like his birthday because he enjoyed life (and also because he received my good-night wish every night). I chose a diner I had noticed a few days ago because it looked quite nice. It wasn’t spacious, but it was neat and clean.
 
-![Quán bánh xèo miền Tây 30k](https://i.pinimg.com/736x/c6/62/44/c66244a23e552afbd62d9ac4b647bf28.jpg)
+<p style="text-align: center;">
+  <img src="https://i.pinimg.com/736x/c6/62/44/c66244a23e552afbd62d9ac4b647bf28.jpg" style="width:80%;">
+  <br>
+  <em>Tiệm bánh xèo miền Tây rau rừng 30K (đường số 8) - Miền Tây-style Vietnamese bánh xèo with wild herbs – only 30.000 VND (Street No. 8) </em>
+</p>
 
 The bánh xèo looked nice to me, and it had more toppings than the other low-quality, cheap ones inside the national university area. But Tân said it was… okay. Eight out of ten, rated by Tân.
 
