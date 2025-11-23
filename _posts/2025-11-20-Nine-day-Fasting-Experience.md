@@ -6,14 +6,14 @@ When I came back to Stone Hill Farm to for Miss Thu and Mr Do's wedding, I had t
 
 He then shared with me the other of his two magical experiences ever - besides vipassana - ***fasting***. He tried it many years ago, learning it from a friend at his Stone Hill Farm. I'm not sure how long the full practice should last, but his ended after 8 or 9 days because of an unavoidable business meal or something like that.
 
-During this fasting series, one does not eat anything except sugar cane, flavored with special pepper-salt mix. Each meal consists of a small bowl of sugar cane chunks, dipped into a combination of salt, pepper or chilli, and lime juice. The meal ends up by chewing on and swallowing  the squeezed lime rind. Water is allowed.
+During this fasting series, one does not eat anything except sugar cane, flavored with special pepper-salt mix. Each meal consists of a small bowl of sugar cane chunks, dipped into a combination of salt, pepper or chilli, and lime juice. The meal ends up by chewing on and swallowing the squeezed lime rind. Water is allowed.
 
 ### Day 0
 On day 0, I ate lunch as usual. From the afternoon onward, I didn't eat anything. I only drank a tea called "Phan tả diệp" for dinner, which is meant to clear the digestive system (I guess it works like laxative - thuốc xổ). My first sugar cane meal was scheduled for the next lunch.
 
 ![Lá trà Phan tả diệp](https://cdn.nhathuoclongchau.com.vn/unsafe/800x0/tra_phan_ta_diep_va_nhung_loi_ich_suc_khoe_it_ai_ngo_den_4_2c4a04692f.jpg)
 
-That afternoon, Tu Nhi and I rode my motorbike to find sugar cane. We discovered that there were two very different types of sugar cane. The first one is the common one sold for juice (nước mía). However, it is super tough and the seller laughed at us when we asked to buy some, and they asserted that we would break our teeth trying to chew it. They suggested we look for the second type: *purple* sugar cane. However, it was very hard to find, almost impossible, probably because it's so uncommon. Now I understand the gap between how much people drink sugar cane and how much they actually eat it. It took us a lot of effort to track down a tricycle vendor (xe ba gác) who moves around and only stops at certain crowded spots - particularly Nguyễn Văn Lịch Primary School on 6th street, about 2 km from UEL university. We couldn't even find it at the traditional market!
+Late in the afternoon, Tu Nhi and I rode my motorbike to find sugar cane. We discovered that there were two very different types of sugar cane. The first one is the common one sold for juice (nước mía). However, it is super tough and the seller laughed at us when we asked to buy some, and they asserted that we would break our teeth trying to chew it. They suggested we look for the second type: *purple* sugar cane. However, it was very hard to find, almost impossible, probably because it's so uncommon. Now I understand the gap between how much people drink sugar cane and how much they actually eat it. It took us a lot of effort to track down a tricycle vendor (xe ba gác) who moves around and only stops at certain crowded spots - particularly Nguyễn Văn Lịch Primary School on 6th street, about 2 km from UEL university. We couldn't even find it at the traditional market!
 
 ![Mía tím và mía xanh](https://sohanews.sohacdn.com/160588918557773824/2022/3/11/photo-1-16470162862321712894939.jpeg)
 
@@ -74,7 +74,13 @@ Getting there required quite a bit of hiking. Considering how sick and weak I ha
 
 It was cloudy and dark even at noon, so the lake wasn't as stunning as the last time we saw it on a really sunny day, but it was still beautiful.
 
-On the way back home, we went to buy more sugar cane because I had run out (Tu Nhi still had a half of her bag, since she only ate 4 chunks per meal, while I usually had 6 and often ate extra!). 
+On the way back home, we went to buy more sugar cane because I had run out (Tu Nhi still had a half of her bag, since she only ate 4 chunks per meal, while I usually had 6 and often ate extra!). The vendor had moved to another spot, but luckly we found him when riding around! 
+
+Also, I suggested that we go eat bánh xèo - I wanted Tân to enjoy something on his birthday, even though he said every day felt like his birthday because he enjoyed life (and also because he received my good-night wish every night). I chose a diner I had noticed a few days ago because it looked quite nice. It wasn’t spacious, but it was neat and clean.
+
+![Quán bánh xèo miền Tây 30k](https://www.pinterest.com/pin/881298220847721176)
+
+The bánh xèo looked nice to me, and it had more toppings than the other low-quality, cheap ones inside the national university area. But Tân said it was… okay. Eight out of ten, rated by Tân.
 
 I was at home. After some time - I can't quite remember how long - I felt a constant pain at the base of my tenth ribs on both sides. I guessed it could be caused either by overly strenuous movement or hunger, but I couldn't tell which. I decided to eat dinner, hoping the pain would go away.
 
