@@ -26,6 +26,8 @@ Today is Vietnam Teacher's day, so I went to the lab to work, so that Hoang and 
 
 I had my "lunch": sugar cane with the special salt mixture! It tasted delicious! One tip: don't let the squeezed lime be the last thing you eat - it's extremely sour and bitter, and the unpleasant taste lingers! Better to save one chunk of sugar cane to eat afterward!
 
+![a meal on fasting diet](https://www.pinterest.com/pin/881298220847720894)
+
 It's now 1:20PM, and I'm still quite hungry... The temptation for food is overwhelming T.T
 
 Tonight, I hung out but felt quite apathetic. I didn’t have much energy and ended up going home early. At one moment, I even thought about quitting this project because everything around me looked so delicious, and I was craving food so badly. I also felt that maybe this isn’t the best time for such a project — my graduation day is coming, and I really need to be healthy for that!
@@ -103,6 +105,8 @@ It also made me realize that fast food isn’t really tasty at all. I had someti
 I started the day like any normal day before the fasting project. Maybe my body now had some external source of energy and was no longer consuming itself. 
 
 I planned to continue eating thin porriage for lunch, and I thought I would stick to it for the whole day before adding some more easy-to-digest foods to my diet tomorrow. So, *my project has now ended*, although I hope to try it again someday (I'll update this blog if that happens!).
+
+![lunch with brown rice porriage](http://pinterest.com/pin/881298220847720879)
 
 However, I am still maintaining my daily fasting routine from 8 PM to 10 AM (skipping breakfast).
 
