@@ -26,7 +26,7 @@ Today is Vietnam Teacher's day, so I went to the lab to work, so that Hoang and 
 
 I had my "lunch": sugar cane with the special salt mixture! It tasted delicious! One tip: don't let the squeezed lime be the last thing you eat - it's extremely sour and bitter, and the unpleasant taste lingers! Better to save one chunk of sugar cane to eat afterward!
 
-![a meal on fasting diet](https://www.pinterest.com/pin/881298220847720894)
+![a meal on fasting diet](https://i.pinimg.com/736x/41/17/97/411797dd872b618ac213e69aa1150c9e.jpg)
 
 It's now 1:20PM, and I'm still quite hungry... The temptation for food is overwhelming T.T
 
@@ -78,7 +78,7 @@ On the way back home, we went to buy more sugar cane because I had run out (Tu N
 
 Also, I suggested that we go eat bánh xèo - I wanted Tân to enjoy something on his birthday, even though he said every day felt like his birthday because he enjoyed life (and also because he received my good-night wish every night). I chose a diner I had noticed a few days ago because it looked quite nice. It wasn’t spacious, but it was neat and clean.
 
-![Quán bánh xèo miền Tây 30k](https://www.pinterest.com/pin/881298220847721176)
+![Quán bánh xèo miền Tây 30k](https://i.pinimg.com/736x/c6/62/44/c66244a23e552afbd62d9ac4b647bf28.jpg)
 
 The bánh xèo looked nice to me, and it had more toppings than the other low-quality, cheap ones inside the national university area. But Tân said it was… okay. Eight out of ten, rated by Tân.
 
@@ -112,7 +112,7 @@ I started the day like any normal day before the fasting project. Maybe my body 
 
 I planned to continue eating thin porriage for lunch, and I thought I would stick to it for the whole day before adding some more easy-to-digest foods to my diet tomorrow. So, *my project has now ended*, although I hope to try it again someday (I'll update this blog if that happens!).
 
-![lunch with brown rice porriage](http://pinterest.com/pin/881298220847720879)
+![lunch with brown rice porriage](https://i.pinimg.com/736x/88/ef/b7/88efb7a9bcd859017f026ed157d785ef.jpg)
 
 However, I am still maintaining my daily fasting routine from 8 PM to 10 AM (skipping breakfast).
 
