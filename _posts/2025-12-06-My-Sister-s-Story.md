@@ -2,6 +2,21 @@
 title: "My Sister's Story"
 date: 2025-12-06
 ---
+
+# My Journey Isn’t on Any Map
+
+When we think of a “journey,” we often imagine a map — with clear routes, specific turns, and even the destination marked in advance. But there are journeys you will never find on any map, because they are drawn by our own choices, hesitations, and the seemingly accidental turns we take. And my journey of growing up is exactly one of those.
+
+I used to be a natural-science student, spending my days buried in Math – Physics – Chemistry. Literature was always a “nightmare” to me. I still remember getting a score of 4 on a Literature test in 8th grade, the year I failed to earn the “excellent student” title for the first time — and all because I was short of 0.1 point in Literature. When I had to choose a university major — a path that people believe defines your career for the rest of your life — I thought I already had clear options: Chemistry, the subject I was best at and my father’s wish; or Information Technology, the major my sister was studying and one with a promising future. I didn’t truly know what either path looked like, but they seemed reasonable and safe for someone with strengths in the natural sciences like me. They were paths other people had walked, paths others could advise me on, and I felt like all I had to do was follow.
+
+But my heart pulled me elsewhere. I listened to myself and asked: Where do I truly want to go? I didn’t know. Then random thoughts appeared: I enjoyed listening to Chinese songs, I found the characters beautiful and unique, even though I didn’t understand them. And so, at a crossroads filled with seemingly safe and certain options, I chose to follow a gentle, vague impulse: I chose to study Chinese Language.
+
+That was the first time I truly felt I was stepping onto a road that didn’t exist on any map. I had no signposts, no pre-drawn route, and no one who had taken a similar path for me to ask directions from. But surprisingly, the further I walked, the more I felt I belonged there. I began to enjoy writing Chinese characters — my first strokes were shaky but full of curiosity. I loved listening to my teachers talk about culture, and I felt a burst of joy when I finally understood the meaning of an ancient poem.
+
+The things that once scared me, that made me feel I “didn’t fit,” slowly became daily sources of motivation and happiness. If life had a fixed map, perhaps someone like me — a natural-science student, weak in Literature — would never have discovered something so intriguing. Now, I’m no longer afraid to continue on my journey — not because the uncertainty has disappeared, but because the experiences gained from the path I chose myself have given me the steadiness to freely explore new directions.
+
+From this experience, I realized that everyone’s journey is unique and cannot be found on any map. They are unique because each of us is born with different starting points, personalities, and dreams. And they are unmapped because the world is full of variables; we can only walk forward and make choices at each intersection. Through those steps, the path gradually takes shape.
+
 # Hành trình của tôi không có trên bất kỳ tấm bản đồ nào 
 
 Nhắc đến “hành trình”, chúng ta thường nghĩ đến một tấm bản đồ — với đường đi rõ ràng, hướng rẽ cụ thể, thậm chí cả điểm đến được đánh dấu sẵn. Nhưng có những hành trình bạn sẽ không thể tìm thấy trên bất kỳ tấm bản đồ nào, bởi nó được vẽ bằng chính sự lựa chọn, sự do dự, và cả những bước rẽ tưởng như vô tình của chúng ta. Và hành trình trưởng thành của tôi chính là một hành trình như vậy.
