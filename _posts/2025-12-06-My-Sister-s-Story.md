@@ -17,6 +17,20 @@ The things that once scared me, that made me feel I “didn’t fit,” slowly b
 
 From this experience, I realized that everyone’s journey is unique and cannot be found on any map. They are unique because each of us is born with different starting points, personalities, and dreams. And they are unmapped because the world is full of variables; we can only walk forward and make choices at each intersection. Through those steps, the path gradually takes shape.
 
+# 我的旅程不存在于任何地图上
+
+一提到“旅程”，我们往往会想到一张地图——有清晰的路线、明确的转弯点，甚至连目的地都被预先标记好。然而，有些旅程在任何地图上都找不到，因为它们是由我们的选择、犹豫，甚至那些看似偶然的转弯所绘成的。而我的成长之旅，正是这样一段旅程。
+
+我曾是理科生，每天埋头于数学、物理、化学之中。语文对我来说一直是“噩梦”。我仍记得八年级那场语文考试，我只考了 4 分——也是我第一次因为语文差 0.1 分而失去“三好学生”的称号。面对大学专业的选择——一条似乎会陪伴一生的道路——我以为自己已经有了明确的答案：化学，这是我最擅长的科目，也是父亲的期望；或者信息技术，这是姐姐就读的专业，也充满前景。我并不了解这些道路的真实模样，但对一个理科有优势的学生来说，它们看起来都是合理而安全的选择。那是别人走过的路，他们可以给我建议，而我似乎只需要跟着走。
+
+但我的内心却指向了另一个方向。我听着自己的声音，问自己：我真正想去哪里？我不知道。随后一些飘忽的念头浮现：我喜欢听中文歌，觉得那些象形文字漂亮而独特，尽管我完全不懂意思。于是，在那些看似稳妥又确定的选择中，我听从了那份轻柔而模糊的冲动——我选择了中文系。
+
+那是我第一次真切地感受到：自己正走在一条任何地图上都不存在的道路上。我没有路标，没有预设的路线，也没有可以询问方向的前人。但意外的是：路越走，我越觉得自己属于这里。我开始喜欢写汉字——最初的笔画虽然颤抖，却充满好奇。我喜欢听老师讲文化故事，也会在读懂一首古诗的真正含义时，心里“豁然开朗”。
+
+那些曾经让我害怕、让我觉得“不适合”的东西，渐渐变成了我每日的动力与快乐。如果人生真的有一张固定的地图，也许像我这样理科生、语文弱的人，永远不会发现这些有趣的事物。如今，我已不再害怕继续前行——不是因为未知消失了，而是因为走在自己选择的道路上所获得的经历，让我变得更加坚定，也更愿意自由探索新的方向。
+
+从这段经历中，我明白了：每个人的旅程都是独一无二的，不会预先印在任何地图上。它们独特，是因为我们各自拥有不同的起点、个性与梦想；它们没有被画好，是因为这个世界充满变数，我们只能一步步往前走，在每一个路口做出自己的选择。正是从这些步伐中，道路才逐渐显现。
+
 # Hành trình của tôi không có trên bất kỳ tấm bản đồ nào 
 
 Nhắc đến “hành trình”, chúng ta thường nghĩ đến một tấm bản đồ — với đường đi rõ ràng, hướng rẽ cụ thể, thậm chí cả điểm đến được đánh dấu sẵn. Nhưng có những hành trình bạn sẽ không thể tìm thấy trên bất kỳ tấm bản đồ nào, bởi nó được vẽ bằng chính sự lựa chọn, sự do dự, và cả những bước rẽ tưởng như vô tình của chúng ta. Và hành trình trưởng thành của tôi chính là một hành trình như vậy.
